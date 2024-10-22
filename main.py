@@ -33,7 +33,9 @@ def write_verse_files(verses):
         os.makedirs(book_dir, exist_ok=True)
 
         for chapter_verse, content in verse_list:
-            file_name = f'{book} {chapter_verse}.md'
+            # Replace ':' with '-' in the chapter-verse designation
+            chapter_verse_safe = chapter_verse.replace(':', '-')
+            file_name = f'{book} {chapter_verse_safe}.md'
             file_path = os.path.join(book_dir, file_name)
 
             with open(file_path, 'w') as f:
@@ -44,4 +46,4 @@ if __name__ == '__main__':
     verses = parse_bible_text(bible_file)
     write_verse_files(verses)
     
-    print("Makdown files generated successfully.")
+    print("Markdown files generated successfully.")

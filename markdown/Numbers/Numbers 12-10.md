@@ -1,0 +1,3 @@
+# Numbers 12:10
+
+And the cloud departed from off the tabernacle; and, behold, Miriam [became] leprous, [white] as snow: and Aaron looked upon Miriam, and, behold, [she was] leprous.

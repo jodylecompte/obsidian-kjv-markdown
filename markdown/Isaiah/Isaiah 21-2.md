@@ -1,0 +1,3 @@
+# Isaiah 21:2
+
+A grievous vision is declared unto me; the treacherous dealer dealeth treacherously, and the spoiler spoileth. Go up, O Elam: besiege, O Media; all the sighing thereof have I made to cease.

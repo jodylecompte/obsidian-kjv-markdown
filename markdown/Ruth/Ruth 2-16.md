@@ -1,0 +1,3 @@
+# Ruth 2:16
+
+And let fall also [some] of the handfuls of purpose for her, and leave [them], that she may glean [them], and rebuke her not.

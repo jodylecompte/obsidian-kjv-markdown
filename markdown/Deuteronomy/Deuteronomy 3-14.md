@@ -1,0 +1,3 @@
+# Deuteronomy 3:14
+
+Jair the son of Manasseh took all the country of Argob unto the coasts of Geshuri and Maachathi; and called them after his own name, Bashanhavothjair, unto this day.

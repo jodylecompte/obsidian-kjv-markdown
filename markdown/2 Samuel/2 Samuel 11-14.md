@@ -1,0 +1,3 @@
+# 2 Samuel 11:14
+
+And it came to pass in the morning, that David wrote a letter to Joab, and sent [it] by the hand of Uriah.

@@ -1,0 +1,3 @@
+# Genesis 26:27
+
+And Isaac said unto them, Wherefore come ye to me, seeing ye hate me, and have sent me away from you?

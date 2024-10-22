@@ -1,0 +1,3 @@
+# Exodus 18:11
+
+Now I know that the LORD [is] greater than all gods: for in the thing wherein they dealt proudly [he was] above them.

@@ -1,0 +1,3 @@
+# Matthew 19:19
+
+Honour thy father and [thy] mother: and, Thou shalt love thy neighbour as thyself.

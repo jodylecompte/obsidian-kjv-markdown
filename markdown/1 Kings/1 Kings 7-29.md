@@ -1,0 +1,3 @@
+# 1 Kings 7:29
+
+And on the borders that [were] between the ledges [were] lions, oxen, and cherubims: and upon the ledges [there was] a base above: and beneath the lions and oxen [were] certain additions made of thin work.

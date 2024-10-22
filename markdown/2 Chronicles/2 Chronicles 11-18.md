@@ -1,0 +1,3 @@
+# 2 Chronicles 11:18
+
+And Rehoboam took him Mahalath the daughter of Jerimoth the son of David to wife, [and] Abihail the daughter of Eliab the son of Jesse;

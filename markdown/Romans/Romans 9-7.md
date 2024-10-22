@@ -1,0 +1,3 @@
+# Romans 9:7
+
+Neither, because they are the seed of Abraham, [are they] all children: but, In Isaac shall thy seed be called.

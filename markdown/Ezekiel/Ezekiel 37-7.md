@@ -1,0 +1,3 @@
+# Ezekiel 37:7
+
+So I prophesied as I was commanded: and as I prophesied, there was a noise, and behold a shaking, and the bones came together, bone to his bone.

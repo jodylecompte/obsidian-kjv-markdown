@@ -1,0 +1,3 @@
+# Psalm 35:19
+
+Let not them that are mine enemies wrongfully rejoice over me: [neither] let them wink with the eye that hate me without a cause.

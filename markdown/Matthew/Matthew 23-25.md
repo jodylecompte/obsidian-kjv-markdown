@@ -1,0 +1,3 @@
+# Matthew 23:25
+
+Woe unto you, scribes and Pharisees, hypocrites! for ye make clean the outside of the cup and of the platter, but within they are full of extortion and excess.

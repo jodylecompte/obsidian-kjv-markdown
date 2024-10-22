@@ -1,0 +1,3 @@
+# Revelation 1:3
+
+Blessed [is] he that readeth, and they that hear the words of this prophecy, and keep those things which are written therein: for the time [is] at hand.

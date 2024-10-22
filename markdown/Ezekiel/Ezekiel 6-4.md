@@ -1,0 +1,3 @@
+# Ezekiel 6:4
+
+And your altars shall be desolate, and your images shall be broken: and I will cast down your slain [men] before your idols.

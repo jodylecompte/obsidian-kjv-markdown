@@ -1,0 +1,3 @@
+# Jeremiah 46:15
+
+Why are thy valiant [men] swept away? they stood not, because the LORD did drive them.

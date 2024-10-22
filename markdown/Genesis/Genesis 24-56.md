@@ -1,0 +1,3 @@
+# Genesis 24:56
+
+And he said unto them, Hinder me not, seeing the LORD hath prospered my way; send me away that I may go to my master.

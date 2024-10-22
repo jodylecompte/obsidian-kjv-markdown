@@ -1,0 +1,3 @@
+# Psalm 138:3
+
+In the day when I cried thou answeredst me, [and] strengthenedst me [with] strength in my soul.

@@ -1,0 +1,3 @@
+# Habakkuk 1:11
+
+Then shall [his] mind change, and he shall pass over, and offend, [imputing] this his power unto his god.

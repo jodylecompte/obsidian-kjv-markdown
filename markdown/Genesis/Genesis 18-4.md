@@ -1,0 +1,3 @@
+# Genesis 18:4
+
+Let a little water, I pray you, be fetched, and wash your feet, and rest yourselves under the tree:

@@ -1,0 +1,3 @@
+# Deuteronomy 21:8
+
+Be merciful, O LORD, unto thy people Israel, whom thou hast redeemed, and lay not innocent blood unto thy people of Israel’s charge. And the blood shall be forgiven them.

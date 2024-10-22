@@ -1,0 +1,3 @@
+# Exodus 26:34
+
+And thou shalt put the mercy seat upon the ark of the testimony in the most holy [place].

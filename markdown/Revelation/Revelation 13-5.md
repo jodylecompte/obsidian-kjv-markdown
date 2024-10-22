@@ -1,0 +1,3 @@
+# Revelation 13:5
+
+And there was given unto him a mouth speaking great things and blasphemies; and power was given unto him to continue forty [and] two months.

@@ -1,0 +1,3 @@
+# 1 Corinthians 12:3
+
+Wherefore I give you to understand, that no man speaking by the Spirit of God calleth Jesus accursed: and [that] no man can say that Jesus is the Lord, but by the Holy Ghost.

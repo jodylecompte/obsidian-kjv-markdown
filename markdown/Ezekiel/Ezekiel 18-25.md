@@ -1,0 +1,3 @@
+# Ezekiel 18:25
+
+Yet ye say, The way of the Lord is not equal. Hear now, O house of Israel; Is not my way equal? are not your ways unequal?

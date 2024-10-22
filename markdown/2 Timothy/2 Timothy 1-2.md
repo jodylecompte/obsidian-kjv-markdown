@@ -1,0 +1,3 @@
+# 2 Timothy 1:2
+
+To Timothy, [my] dearly beloved son: Grace, mercy, [and] peace, from God the Father and Christ Jesus our Lord.

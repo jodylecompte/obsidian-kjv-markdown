@@ -1,0 +1,3 @@
+# 1 Corinthians 16:6
+
+And it may be that I will abide, yea, and winter with you, that ye may bring me on my journey whithersoever I go.

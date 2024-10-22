@@ -1,0 +1,3 @@
+# Numbers 14:39
+
+And Moses told these sayings unto all the children of Israel: and the people mourned greatly.

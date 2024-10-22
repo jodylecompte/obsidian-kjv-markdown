@@ -1,0 +1,3 @@
+# James 3:9
+
+Therewith bless we God, even the Father; and therewith curse we men, which are made after the similitude of God.

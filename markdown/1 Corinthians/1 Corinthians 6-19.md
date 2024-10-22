@@ -1,0 +1,3 @@
+# 1 Corinthians 6:19
+
+What? know ye not that your body is the temple of the Holy Ghost [which is] in you, which ye have of God, and ye are not your own?

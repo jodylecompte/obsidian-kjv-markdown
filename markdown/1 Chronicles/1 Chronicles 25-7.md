@@ -1,0 +1,3 @@
+# 1 Chronicles 25:7
+
+So the number of them, with their brethren that were instructed in the songs of the LORD, [even] all that were cunning, was two hundred fourscore and eight.

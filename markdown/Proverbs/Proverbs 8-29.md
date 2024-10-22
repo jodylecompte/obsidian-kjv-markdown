@@ -1,0 +1,3 @@
+# Proverbs 8:29
+
+When he gave to the sea his decree, that the waters should not pass his commandment: when he appointed the foundations of the earth:

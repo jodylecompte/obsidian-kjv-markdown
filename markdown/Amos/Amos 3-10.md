@@ -1,0 +1,3 @@
+# Amos 3:10
+
+For they know not to do right, saith the LORD, who store up violence and robbery in their palaces.

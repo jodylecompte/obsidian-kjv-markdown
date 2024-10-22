@@ -1,0 +1,3 @@
+# 1 Chronicles 19:18
+
+But the Syrians fled before Israel; and David slew of the Syrians seven thousand [men which fought in] chariots, and forty thousand footmen, and killed Shophach the captain of the host.

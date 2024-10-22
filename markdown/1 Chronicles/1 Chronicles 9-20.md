@@ -1,0 +1,3 @@
+# 1 Chronicles 9:20
+
+And Phinehas the son of Eleazar was the ruler over them in time past, [and] the LORD [was] with him.

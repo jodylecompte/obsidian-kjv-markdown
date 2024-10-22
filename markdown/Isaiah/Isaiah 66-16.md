@@ -1,0 +1,3 @@
+# Isaiah 66:16
+
+For by fire and by his sword will the LORD plead with all flesh: and the slain of the LORD shall be many.

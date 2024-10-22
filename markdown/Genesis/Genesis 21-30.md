@@ -1,0 +1,3 @@
+# Genesis 21:30
+
+And he said, For [these] seven ewe lambs shalt thou take of my hand, that they may be a witness unto me, that I have digged this well.

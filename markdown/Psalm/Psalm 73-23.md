@@ -1,0 +1,3 @@
+# Psalm 73:23
+
+Nevertheless I [am] continually with thee: thou hast holden [me] by my right hand.

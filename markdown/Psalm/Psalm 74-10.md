@@ -1,0 +1,3 @@
+# Psalm 74:10
+
+O God, how long shall the adversary reproach? shall the enemy blaspheme thy name for ever?

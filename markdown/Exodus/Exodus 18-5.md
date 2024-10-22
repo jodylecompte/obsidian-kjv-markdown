@@ -1,0 +1,3 @@
+# Exodus 18:5
+
+And Jethro, Moses’ father in law, came with his sons and his wife unto Moses into the wilderness, where he encamped at the mount of God:

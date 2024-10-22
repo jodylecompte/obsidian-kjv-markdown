@@ -1,0 +1,3 @@
+# Psalm 104:7
+
+At thy rebuke they fled; at the voice of thy thunder they hasted away.

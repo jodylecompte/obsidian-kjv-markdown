@@ -1,0 +1,3 @@
+# Exodus 23:24
+
+Thou shalt not bow down to their gods, nor serve them, nor do after their works: but thou shalt utterly overthrow them, and quite break down their images.

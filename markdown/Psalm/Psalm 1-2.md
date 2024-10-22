@@ -1,0 +1,3 @@
+# Psalm 1:2
+
+But his delight [is] in the law of the LORD; and in his law doth he meditate day and night.

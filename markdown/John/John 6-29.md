@@ -1,0 +1,3 @@
+# John 6:29
+
+Jesus answered and said unto them, This is the work of God, that ye believe on him whom he hath sent.

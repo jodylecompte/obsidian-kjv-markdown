@@ -1,0 +1,3 @@
+# 1 Kings 22:7
+
+And Jehoshaphat said, [Is there] not here a prophet of the LORD besides, that we might inquire of him?

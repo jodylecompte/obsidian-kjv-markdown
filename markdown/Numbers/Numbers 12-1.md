@@ -1,0 +1,3 @@
+# Numbers 12:1
+
+And Miriam and Aaron spake against Moses because of the Ethiopian woman whom he had married: for he had married an Ethiopian woman.

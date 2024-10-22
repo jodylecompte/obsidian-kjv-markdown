@@ -1,0 +1,3 @@
+# Ezekiel 6:8
+
+Yet will I leave a remnant, that ye may have [some] that shall escape the sword among the nations, when ye shall be scattered through the countries.

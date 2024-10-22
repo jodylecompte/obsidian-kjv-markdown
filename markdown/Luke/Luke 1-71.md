@@ -1,0 +1,3 @@
+# Luke 1:71
+
+That we should be saved from our enemies, and from the hand of all that hate us;

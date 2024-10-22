@@ -1,0 +1,3 @@
+# Proverbs 18:4
+
+The words of a man’s mouth [are as] deep waters, [and] the wellspring of wisdom [as] a flowing brook.

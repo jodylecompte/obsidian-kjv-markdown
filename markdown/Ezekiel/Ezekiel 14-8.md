@@ -1,0 +1,3 @@
+# Ezekiel 14:8
+
+And I will set my face against that man, and will make him a sign and a proverb, and I will cut him off from the midst of my people; and ye shall know that I [am] the LORD.

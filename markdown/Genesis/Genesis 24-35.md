@@ -1,0 +1,3 @@
+# Genesis 24:35
+
+And the LORD hath blessed my master greatly; and he is become great: and he hath given him flocks, and herds, and silver, and gold, and menservants, and maidservants, and camels, and asses.

@@ -1,0 +1,3 @@
+# Deuteronomy 28:49
+
+The LORD shall bring a nation against thee from far, from the end of the earth, [as swift] as the eagle flieth; a nation whose tongue thou shalt not understand;

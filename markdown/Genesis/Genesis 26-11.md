@@ -1,0 +1,3 @@
+# Genesis 26:11
+
+And Abimelech charged all [his] people, saying, He that toucheth this man or his wife shall surely be put to death.

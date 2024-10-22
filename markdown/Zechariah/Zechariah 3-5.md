@@ -1,0 +1,3 @@
+# Zechariah 3:5
+
+And I said, Let them set a fair mitre upon his head. So they set a fair mitre upon his head, and clothed him with garments. And the angel of the LORD stood by.

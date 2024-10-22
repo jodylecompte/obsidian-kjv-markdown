@@ -1,0 +1,3 @@
+# Proverbs 11:8
+
+The righteous is delivered out of trouble, and the wicked cometh in his stead.

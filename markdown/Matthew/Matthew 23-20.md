@@ -1,0 +1,3 @@
+# Matthew 23:20
+
+Whoso therefore shall swear by the altar, sweareth by it, and by all things thereon.

@@ -1,0 +1,3 @@
+# Hosea 8:9
+
+For they are gone up to Assyria, a wild ass alone by himself: Ephraim hath hired lovers.

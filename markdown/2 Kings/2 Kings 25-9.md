@@ -1,0 +1,3 @@
+# 2 Kings 25:9
+
+And he burnt the house of the LORD, and the king’s house, and all the houses of Jerusalem, and every great [man’s] house burnt he with fire.

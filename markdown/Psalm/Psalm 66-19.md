@@ -1,0 +1,3 @@
+# Psalm 66:19
+
+[But] verily God hath heard [me]; he hath attended to the voice of my prayer.

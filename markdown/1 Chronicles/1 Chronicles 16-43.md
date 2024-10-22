@@ -1,0 +1,3 @@
+# 1 Chronicles 16:43
+
+And all the people departed every man to his house: and David returned to bless his house.

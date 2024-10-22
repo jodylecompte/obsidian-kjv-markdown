@@ -1,0 +1,3 @@
+# 1 Peter 4:1
+
+Forasmuch then as Christ hath suffered for us in the flesh, arm yourselves likewise with the same mind: for he that hath suffered in the flesh hath ceased from sin;

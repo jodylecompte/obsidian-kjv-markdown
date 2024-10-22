@@ -1,0 +1,3 @@
+# Zechariah 10:12
+
+And I will strengthen them in the LORD; and they shall walk up and down in his name, saith the LORD.

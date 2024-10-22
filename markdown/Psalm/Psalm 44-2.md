@@ -1,0 +1,3 @@
+# Psalm 44:2
+
+[How] thou didst drive out the heathen with thy hand, and plantedst them; [how] thou didst afflict the people, and cast them out.

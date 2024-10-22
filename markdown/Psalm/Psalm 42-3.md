@@ -1,0 +1,3 @@
+# Psalm 42:3
+
+My tears have been my meat day and night, while they continually say unto me, Where [is] thy God?

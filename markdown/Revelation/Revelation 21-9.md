@@ -1,0 +1,3 @@
+# Revelation 21:9
+
+And there came unto me one of the seven angels which had the seven vials full of the seven last plagues, and talked with me, saying, Come hither, I will shew thee the bride, the Lamb’s wife.

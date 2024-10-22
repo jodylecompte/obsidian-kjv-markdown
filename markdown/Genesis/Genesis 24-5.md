@@ -1,0 +1,3 @@
+# Genesis 24:5
+
+And the servant said unto him, Peradventure the woman will not be willing to follow me unto this land: must I needs bring thy son again unto the land from whence thou camest?

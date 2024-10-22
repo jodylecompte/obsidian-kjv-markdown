@@ -1,0 +1,3 @@
+# Psalm 83:9
+
+Do unto them as [unto] the Midianites; as [to] Sisera, as [to] Jabin, at the brook of Kison:

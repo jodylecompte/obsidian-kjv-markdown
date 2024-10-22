@@ -1,0 +1,3 @@
+# 2 Samuel 15:26
+
+But if he thus say, I have no delight in thee; behold, [here am] I, let him do to me as seemeth good unto him.

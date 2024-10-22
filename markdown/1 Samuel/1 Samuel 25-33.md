@@ -1,0 +1,3 @@
+# 1 Samuel 25:33
+
+And blessed [be] thy advice, and blessed [be] thou, which hast kept me this day from coming to [shed] blood, and from avenging myself with mine own hand.

@@ -1,0 +1,3 @@
+# Acts 2:11
+
+Cretes and Arabians, we do hear them speak in our tongues the wonderful works of God.

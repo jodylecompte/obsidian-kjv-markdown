@@ -1,0 +1,3 @@
+# Romans 7:14
+
+For we know that the law is spiritual: but I am carnal, sold under sin.

@@ -1,0 +1,3 @@
+# Psalm 55:6
+
+And I said, Oh that I had wings like a dove! [for then] would I fly away, and be at rest.

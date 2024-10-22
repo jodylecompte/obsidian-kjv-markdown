@@ -1,0 +1,3 @@
+# 2 Corinthians 8:7
+
+Therefore, as ye abound in every [thing, in] faith, and utterance, and knowledge, and [in] all diligence, and [in] your love to us, [see] that ye abound in this grace also.

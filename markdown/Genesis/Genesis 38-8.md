@@ -1,0 +1,3 @@
+# Genesis 38:8
+
+And Judah said unto Onan, Go in unto thy brother’s wife, and marry her, and raise up seed to thy brother.

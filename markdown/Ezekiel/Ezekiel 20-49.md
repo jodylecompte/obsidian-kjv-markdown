@@ -1,0 +1,3 @@
+# Ezekiel 20:49
+
+Then said I, Ah Lord GOD! they say of me, Doth he not speak parables?

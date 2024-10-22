@@ -1,0 +1,3 @@
+# Joshua 14:13
+
+And Joshua blessed him, and gave unto Caleb the son of Jephunneh Hebron for an inheritance.

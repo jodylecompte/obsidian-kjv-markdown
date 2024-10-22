@@ -1,0 +1,3 @@
+# Isaiah 60:12
+
+For the nation and kingdom that will not serve thee shall perish; yea, [those] nations shall be utterly wasted.

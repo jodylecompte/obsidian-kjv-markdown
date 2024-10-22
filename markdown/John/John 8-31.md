@@ -1,0 +1,3 @@
+# John 8:31
+
+Then said Jesus to those Jews which believed on him, If ye continue in my word, [then] are ye my disciples indeed;

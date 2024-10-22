@@ -1,0 +1,3 @@
+# 1 Chronicles 27:7
+
+The fourth [captain] for the fourth month [was] Asahel the brother of Joab, and Zebadiah his son after him: and in his course [were] twenty and four thousand.

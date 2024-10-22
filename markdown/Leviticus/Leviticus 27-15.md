@@ -1,0 +1,3 @@
+# Leviticus 27:15
+
+And if he that sanctified it will redeem his house, then he shall add the fifth [part] of the money of thy estimation unto it, and it shall be his.

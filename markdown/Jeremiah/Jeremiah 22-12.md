@@ -1,0 +1,3 @@
+# Jeremiah 22:12
+
+But he shall die in the place whither they have led him captive, and shall see this land no more.

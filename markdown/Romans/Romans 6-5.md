@@ -1,0 +1,3 @@
+# Romans 6:5
+
+For if we have been planted together in the likeness of his death, we shall be also [in the likeness] of [his] resurrection:

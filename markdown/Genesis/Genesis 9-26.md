@@ -1,0 +1,3 @@
+# Genesis 9:26
+
+And he said, Blessed [be] the LORD God of Shem; and Canaan shall be his servant.

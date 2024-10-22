@@ -1,0 +1,3 @@
+# Proverbs 18:20
+
+A man’s belly shall be satisfied with the fruit of his mouth; [and] with the increase of his lips shall he be filled.

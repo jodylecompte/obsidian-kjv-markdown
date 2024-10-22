@@ -1,0 +1,3 @@
+# Micah 7:16
+
+The nations shall see and be confounded at all their might: they shall lay [their] hand upon [their] mouth, their ears shall be deaf.

@@ -1,0 +1,3 @@
+# Matthew 5:18
+
+For verily I say unto you, Till heaven and earth pass, one jot or one tittle shall in no wise pass from the law, till all be fulfilled.

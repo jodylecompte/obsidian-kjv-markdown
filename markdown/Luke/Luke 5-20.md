@@ -1,0 +1,3 @@
+# Luke 5:20
+
+And when he saw their faith, he said unto him, Man, thy sins are forgiven thee.

@@ -1,0 +1,3 @@
+# Jeremiah 32:9
+
+And I bought the field of Hanameel my uncle’s son, that [was] in Anathoth, and weighed him the money, [even] seventeen shekels of silver.

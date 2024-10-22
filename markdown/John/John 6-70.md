@@ -1,0 +1,3 @@
+# John 6:70
+
+Jesus answered them, Have not I chosen you twelve, and one of you is a devil?

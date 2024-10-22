@@ -1,0 +1,3 @@
+# Mark 5:34
+
+And he said unto her, Daughter, thy faith hath made thee whole; go in peace, and be whole of thy plague.

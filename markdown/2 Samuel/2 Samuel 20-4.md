@@ -1,0 +1,3 @@
+# 2 Samuel 20:4
+
+Then said the king to Amasa, Assemble me the men of Judah within three days, and be thou here present.

@@ -1,0 +1,3 @@
+# Psalm 34:16
+
+The face of the LORD [is] against them that do evil, to cut off the remembrance of them from the earth.

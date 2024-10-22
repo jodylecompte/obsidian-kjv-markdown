@@ -1,0 +1,3 @@
+# Judges 5:24
+
+Blessed above women shall Jael the wife of Heber the Kenite be, blessed shall she be above women in the tent.

@@ -1,0 +1,3 @@
+# Psalm 25:9
+
+The meek will he guide in judgment: and the meek will he teach his way.

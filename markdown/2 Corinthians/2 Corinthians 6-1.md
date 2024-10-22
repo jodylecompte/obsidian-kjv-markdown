@@ -1,0 +1,3 @@
+# 2 Corinthians 6:1
+
+We then, [as] workers together [with him], beseech [you] also that ye receive not the grace of God in vain.

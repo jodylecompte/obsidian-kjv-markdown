@@ -1,0 +1,3 @@
+# Psalm 50:7
+
+Hear, O my people, and I will speak; O Israel, and I will testify against thee: I [am] God, [even] thy God.

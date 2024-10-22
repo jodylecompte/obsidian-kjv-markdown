@@ -1,0 +1,3 @@
+# Ephesians 4:31
+
+Let all bitterness, and wrath, and anger, and clamour, and evil speaking, be put away from you, with all malice:

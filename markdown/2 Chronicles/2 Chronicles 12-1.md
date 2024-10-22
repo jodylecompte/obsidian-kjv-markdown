@@ -1,0 +1,3 @@
+# 2 Chronicles 12:1
+
+And it came to pass, when Rehoboam had established the kingdom, and had strengthened himself, he forsook the law of the LORD, and all Israel with him.

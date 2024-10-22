@@ -1,0 +1,3 @@
+# 2 Chronicles 6:42
+
+O LORD God, turn not away the face of thine anointed: remember the mercies of David thy servant.

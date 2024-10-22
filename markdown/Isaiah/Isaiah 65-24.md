@@ -1,0 +1,3 @@
+# Isaiah 65:24
+
+And it shall come to pass, that before they call, I will answer; and while they are yet speaking, I will hear.

@@ -1,0 +1,3 @@
+# Revelation 11:1
+
+And there was given me a reed like unto a rod: and the angel stood, saying, Rise, and measure the temple of God, and the altar, and them that worship therein.

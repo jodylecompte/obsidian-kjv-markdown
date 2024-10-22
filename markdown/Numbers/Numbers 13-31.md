@@ -1,0 +1,3 @@
+# Numbers 13:31
+
+But the men that went up with him said, We be not able to go up against the people; for they [are] stronger than we.

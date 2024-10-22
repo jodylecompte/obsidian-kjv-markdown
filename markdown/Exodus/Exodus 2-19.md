@@ -1,0 +1,3 @@
+# Exodus 2:19
+
+And they said, An Egyptian delivered us out of the hand of the shepherds, and also drew [water] enough for us, and watered the flock.

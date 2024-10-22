@@ -1,0 +1,3 @@
+# 2 Corinthians 8:5
+
+And [this they did], not as we hoped, but first gave their own selves to the Lord, and unto us by the will of God.

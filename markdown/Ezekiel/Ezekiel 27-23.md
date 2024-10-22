@@ -1,0 +1,3 @@
+# Ezekiel 27:23
+
+Haran, and Canneh, and Eden, the merchants of Sheba, Asshur, [and] Chilmad, [were] thy merchants.

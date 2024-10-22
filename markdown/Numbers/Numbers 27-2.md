@@ -1,0 +1,3 @@
+# Numbers 27:2
+
+And they stood before Moses, and before Eleazar the priest, and before the princes and all the congregation, [by] the door of the tabernacle of the congregation, saying,

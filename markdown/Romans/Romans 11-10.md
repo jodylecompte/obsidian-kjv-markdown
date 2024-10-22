@@ -1,0 +1,3 @@
+# Romans 11:10
+
+Let their eyes be darkened, that they may not see, and bow down their back alway.

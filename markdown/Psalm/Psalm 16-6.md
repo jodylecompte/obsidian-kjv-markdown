@@ -1,0 +1,3 @@
+# Psalm 16:6
+
+The lines are fallen unto me in pleasant [places]; yea, I have a goodly heritage.

@@ -1,0 +1,3 @@
+# Daniel 2:1
+
+And in the second year of the reign of Nebuchadnezzar Nebuchadnezzar dreamed dreams, wherewith his spirit was troubled, and his sleep brake from him.

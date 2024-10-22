@@ -1,0 +1,3 @@
+# 2 Kings 12:3
+
+But the high places were not taken away: the people still sacrificed and burnt incense in the high places.

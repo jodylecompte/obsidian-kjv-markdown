@@ -1,0 +1,3 @@
+# Revelation 15:6
+
+And the seven angels came out of the temple, having the seven plagues, clothed in pure and white linen, and having their breasts girded with golden girdles.

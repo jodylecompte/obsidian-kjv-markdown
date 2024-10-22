@@ -1,0 +1,3 @@
+# Joel 1:16
+
+Is not the meat cut off before our eyes, [yea], joy and gladness from the house of our God?

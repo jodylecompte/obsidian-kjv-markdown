@@ -1,0 +1,3 @@
+# 2 Samuel 24:12
+
+Go and say unto David, Thus saith the LORD, I offer thee three [things]; choose thee one of them, that I may [do it] unto thee.

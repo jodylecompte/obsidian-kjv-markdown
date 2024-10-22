@@ -1,0 +1,3 @@
+# Matthew 12:3
+
+But he said unto them, Have ye not read what David did, when he was an hungred, and they that were with him;

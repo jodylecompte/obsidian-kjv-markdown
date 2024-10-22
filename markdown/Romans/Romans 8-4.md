@@ -1,0 +1,3 @@
+# Romans 8:4
+
+That the righteousness of the law might be fulfilled in us, who walk not after the flesh, but after the Spirit.

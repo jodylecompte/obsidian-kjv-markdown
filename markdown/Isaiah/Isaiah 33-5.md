@@ -1,0 +1,3 @@
+# Isaiah 33:5
+
+The LORD is exalted; for he dwelleth on high: he hath filled Zion with judgment and righteousness.

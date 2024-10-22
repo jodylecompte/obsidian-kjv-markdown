@@ -1,0 +1,3 @@
+# Psalm 115:1
+
+Not unto us, O LORD, not unto us, but unto thy name give glory, for thy mercy, [and] for thy truth’s sake.

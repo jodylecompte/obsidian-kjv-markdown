@@ -1,0 +1,3 @@
+# Genesis 24:8
+
+And if the woman will not be willing to follow thee, then thou shalt be clear from this my oath: only bring not my son thither again.

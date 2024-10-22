@@ -1,0 +1,3 @@
+# Luke 8:48
+
+And he said unto her, Daughter, be of good comfort: thy faith hath made thee whole; go in peace.

@@ -1,0 +1,3 @@
+# Numbers 16:19
+
+And Korah gathered all the congregation against them unto the door of the tabernacle of the congregation: and the glory of the LORD appeared unto all the congregation.

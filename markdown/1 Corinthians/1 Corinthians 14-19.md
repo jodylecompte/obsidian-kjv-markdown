@@ -1,0 +1,3 @@
+# 1 Corinthians 14:19
+
+Yet in the church I had rather speak five words with my understanding, that [by my voice] I might teach others also, than ten thousand words in an [unknown] tongue.

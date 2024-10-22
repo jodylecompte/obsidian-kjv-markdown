@@ -1,0 +1,3 @@
+# Proverbs 9:8
+
+Reprove not a scorner, lest he hate thee: rebuke a wise man, and he will love thee.

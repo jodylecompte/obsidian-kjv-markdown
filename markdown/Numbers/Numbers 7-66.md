@@ -1,0 +1,3 @@
+# Numbers 7:66
+
+On the tenth day Ahiezer the son of Ammishaddai, prince of the children of Dan, [offered]:

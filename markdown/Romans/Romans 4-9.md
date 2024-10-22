@@ -1,0 +1,3 @@
+# Romans 4:9
+
+[Cometh] this blessedness then upon the circumcision [only], or upon the uncircumcision also? for we say that faith was reckoned to Abraham for righteousness.

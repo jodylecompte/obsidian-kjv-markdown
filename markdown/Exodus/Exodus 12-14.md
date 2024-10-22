@@ -1,0 +1,3 @@
+# Exodus 12:14
+
+And this day shall be unto you for a memorial; and ye shall keep it a feast to the LORD throughout your generations; ye shall keep it a feast by an ordinance for ever.

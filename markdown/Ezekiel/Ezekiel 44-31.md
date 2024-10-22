@@ -1,0 +1,3 @@
+# Ezekiel 44:31
+
+The priests shall not eat of any thing that is dead of itself, or torn, whether it be fowl or beast.

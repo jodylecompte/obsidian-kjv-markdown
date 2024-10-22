@@ -1,0 +1,3 @@
+# 1 Samuel 5:1
+
+And the Philistines took the ark of God, and brought it from Ebenezer unto Ashdod.

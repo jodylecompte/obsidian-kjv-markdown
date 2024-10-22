@@ -1,0 +1,3 @@
+# Malachi 4:4
+
+Remember ye the law of Moses my servant, which I commanded unto him in Horeb for all Israel, [with] the statutes and judgments.

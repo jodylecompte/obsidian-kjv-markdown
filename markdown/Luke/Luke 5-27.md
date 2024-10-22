@@ -1,0 +1,3 @@
+# Luke 5:27
+
+And after these things he went forth, and saw a publican, named Levi, sitting at the receipt of custom: and he said unto him, Follow me.

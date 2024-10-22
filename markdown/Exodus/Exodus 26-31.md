@@ -1,0 +1,3 @@
+# Exodus 26:31
+
+And thou shalt make a vail [of] blue, and purple, and scarlet, and fine twined linen of cunning work: with cherubims shall it be made:

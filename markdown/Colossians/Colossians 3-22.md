@@ -1,0 +1,3 @@
+# Colossians 3:22
+
+Servants, obey in all things [your] masters according to the flesh; not with eyeservice, as menpleasers; but in singleness of heart, fearing God:

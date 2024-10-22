@@ -1,0 +1,3 @@
+# Luke 6:13
+
+And when it was day, he called [unto him] his disciples: and of them he chose twelve, whom also he named apostles;

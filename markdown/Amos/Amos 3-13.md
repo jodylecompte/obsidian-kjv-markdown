@@ -1,0 +1,3 @@
+# Amos 3:13
+
+Hear ye, and testify in the house of Jacob, saith the Lord GOD, the God of hosts,

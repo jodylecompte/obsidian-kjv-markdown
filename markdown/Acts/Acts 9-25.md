@@ -1,0 +1,3 @@
+# Acts 9:25
+
+Then the disciples took him by night, and let [him] down by the wall in a basket.

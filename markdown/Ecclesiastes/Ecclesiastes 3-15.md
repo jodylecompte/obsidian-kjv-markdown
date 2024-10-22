@@ -1,0 +1,3 @@
+# Ecclesiastes 3:15
+
+That which hath been is now; and that which is to be hath already been; and God requireth that which is past.

@@ -1,0 +1,3 @@
+# Amos 1:7
+
+But I will send a fire on the wall of Gaza, which shall devour the palaces thereof:

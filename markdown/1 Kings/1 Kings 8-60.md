@@ -1,0 +1,3 @@
+# 1 Kings 8:60
+
+That all the people of the earth may know that the LORD [is] God, [and that there is] none else.

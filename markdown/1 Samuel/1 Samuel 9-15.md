@@ -1,0 +1,3 @@
+# 1 Samuel 9:15
+
+Now the LORD had told Samuel in his ear a day before Saul came, saying,

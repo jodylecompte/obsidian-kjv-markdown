@@ -1,0 +1,3 @@
+# Luke 7:10
+
+And they that were sent, returning to the house, found the servant whole that had been sick.

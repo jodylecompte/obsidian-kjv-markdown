@@ -1,0 +1,3 @@
+# Deuteronomy 5:16
+
+Honour thy father and thy mother, as the LORD thy God hath commanded thee; that thy days may be prolonged, and that it may go well with thee, in the land which the LORD thy God giveth thee.

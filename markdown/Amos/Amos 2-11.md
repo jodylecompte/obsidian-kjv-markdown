@@ -1,0 +1,3 @@
+# Amos 2:11
+
+And I raised up of your sons for prophets, and of your young men for Nazarites. [Is it] not even thus, O ye children of Israel? saith the LORD.

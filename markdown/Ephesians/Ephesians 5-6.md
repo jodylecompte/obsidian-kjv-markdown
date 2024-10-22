@@ -1,0 +1,3 @@
+# Ephesians 5:6
+
+Let no man deceive you with vain words: for because of these things cometh the wrath of God upon the children of disobedience.

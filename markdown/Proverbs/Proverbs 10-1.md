@@ -1,0 +1,3 @@
+# Proverbs 10:1
+
+The proverbs of Solomon. A wise son maketh a glad father: but a foolish son [is] the heaviness of his mother.

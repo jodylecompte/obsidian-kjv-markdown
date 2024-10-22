@@ -1,0 +1,3 @@
+# Luke 4:8
+
+And Jesus answered and said unto him, Get thee behind me, Satan: for it is written, Thou shalt worship the Lord thy God, and him only shalt thou serve.

@@ -1,0 +1,3 @@
+# Ruth 1:20
+
+And she said unto them, Call me not Naomi, call me Mara: for the Almighty hath dealt very bitterly with me.

@@ -1,0 +1,3 @@
+# 2 Corinthians 13:11
+
+Finally, brethren, farewell. Be perfect, be of good comfort, be of one mind, live in peace; and the God of love and peace shall be with you.

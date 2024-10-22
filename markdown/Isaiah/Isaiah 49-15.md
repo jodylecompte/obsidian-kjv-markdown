@@ -1,0 +1,3 @@
+# Isaiah 49:15
+
+Can a woman forget her sucking child, that she should not have compassion on the son of her womb? yea, they may forget, yet will I not forget thee.

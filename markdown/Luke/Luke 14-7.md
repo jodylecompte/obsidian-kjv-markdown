@@ -1,0 +1,3 @@
+# Luke 14:7
+
+And he put forth a parable to those which were bidden, when he marked how they chose out the chief rooms; saying unto them,

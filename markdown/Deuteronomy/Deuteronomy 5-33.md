@@ -1,0 +1,3 @@
+# Deuteronomy 5:33
+
+Ye shall walk in all the ways which the LORD your God hath commanded you, that ye may live, and [that it may be] well with you, and [that] ye may prolong [your] days in the land which ye shall possess.

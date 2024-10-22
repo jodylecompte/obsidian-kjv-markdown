@@ -1,0 +1,3 @@
+# Ezekiel 48:29
+
+This [is] the land which ye shall divide by lot unto the tribes of Israel for inheritance, and these [are] their portions, saith the Lord GOD.

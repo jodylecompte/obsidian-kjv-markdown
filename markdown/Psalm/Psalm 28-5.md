@@ -1,0 +1,3 @@
+# Psalm 28:5
+
+Because they regard not the works of the LORD, nor the operation of his hands, he shall destroy them, and not build them up.

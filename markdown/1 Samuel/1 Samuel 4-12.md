@@ -1,0 +1,3 @@
+# 1 Samuel 4:12
+
+And there ran a man of Benjamin out of the army, and came to Shiloh the same day with his clothes rent, and with earth upon his head.

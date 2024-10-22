@@ -1,0 +1,3 @@
+# John 7:17
+
+If any man will do his will, he shall know of the doctrine, whether it be of God, or [whether] I speak of myself.

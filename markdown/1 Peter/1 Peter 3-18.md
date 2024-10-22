@@ -1,0 +1,3 @@
+# 1 Peter 3:18
+
+For Christ also hath once suffered for sins, the just for the unjust, that he might bring us to God, being put to death in the flesh, but quickened by the Spirit:

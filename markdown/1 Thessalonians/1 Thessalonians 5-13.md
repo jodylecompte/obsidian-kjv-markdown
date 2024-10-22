@@ -1,0 +1,3 @@
+# 1 Thessalonians 5:13
+
+And to esteem them very highly in love for their work’s sake. [And] be at peace among yourselves.

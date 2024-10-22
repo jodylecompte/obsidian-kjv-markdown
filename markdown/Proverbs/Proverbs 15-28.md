@@ -1,0 +1,3 @@
+# Proverbs 15:28
+
+The heart of the righteous studieth to answer: but the mouth of the wicked poureth out evil things.

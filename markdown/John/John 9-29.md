@@ -1,0 +1,3 @@
+# John 9:29
+
+We know that God spake unto Moses: [as for] this [fellow], we know not from whence he is.

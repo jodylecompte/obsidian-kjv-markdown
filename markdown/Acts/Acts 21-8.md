@@ -1,0 +1,3 @@
+# Acts 21:8
+
+And the next [day] we that were of Paul’s company departed, and came unto Caesarea: and we entered into the house of Philip the evangelist, which was [one] of the seven; and abode with him.

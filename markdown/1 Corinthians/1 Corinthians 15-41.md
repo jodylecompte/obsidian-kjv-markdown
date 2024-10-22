@@ -1,0 +1,3 @@
+# 1 Corinthians 15:41
+
+[There is] one glory of the sun, and another glory of the moon, and another glory of the stars: for [one] star differeth from [another] star in glory.

@@ -1,0 +1,3 @@
+# Matthew 4:1
+
+Then was Jesus led up of the Spirit into the wilderness to be tempted of the devil.

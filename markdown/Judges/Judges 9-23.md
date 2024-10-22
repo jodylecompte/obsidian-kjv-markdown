@@ -1,0 +1,3 @@
+# Judges 9:23
+
+Then God sent an evil spirit between Abimelech and the men of Shechem; and the men of Shechem dealt treacherously with Abimelech:

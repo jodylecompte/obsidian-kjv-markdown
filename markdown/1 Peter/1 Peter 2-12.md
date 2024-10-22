@@ -1,0 +1,3 @@
+# 1 Peter 2:12
+
+Having your conversation honest among the Gentiles: that, whereas they speak against you as evildoers, they may by [your] good works, which they shall behold, glorify God in the day of visitation.

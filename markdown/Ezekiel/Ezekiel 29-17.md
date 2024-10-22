@@ -1,0 +1,3 @@
+# Ezekiel 29:17
+
+And it came to pass in the seven and twentieth year, in the first [month], in the first [day] of the month, the word of the LORD came unto me, saying,

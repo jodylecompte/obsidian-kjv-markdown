@@ -1,0 +1,3 @@
+# Psalm 48:7
+
+Thou breakest the ships of Tarshish with an east wind.

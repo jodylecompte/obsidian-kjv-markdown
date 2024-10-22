@@ -1,0 +1,3 @@
+# Romans 9:31
+
+But Israel, which followed after the law of righteousness, hath not attained to the law of righteousness.

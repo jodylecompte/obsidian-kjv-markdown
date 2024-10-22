@@ -1,0 +1,3 @@
+# Genesis 10:7
+
+And the sons of Cush; Seba, and Havilah, and Sabtah, and Raamah, and Sabtecha: and the sons of Raamah; Sheba, and Dedan.

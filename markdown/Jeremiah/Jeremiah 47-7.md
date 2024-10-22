@@ -1,0 +1,3 @@
+# Jeremiah 47:7
+
+How can it be quiet, seeing the LORD hath given it a charge against Ashkelon, and against the sea shore? there hath he appointed it.

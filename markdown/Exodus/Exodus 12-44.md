@@ -1,0 +1,3 @@
+# Exodus 12:44
+
+But every man’s servant that is bought for money, when thou hast circumcised him, then shall he eat thereof.

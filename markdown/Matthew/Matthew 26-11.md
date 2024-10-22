@@ -1,0 +1,3 @@
+# Matthew 26:11
+
+For ye have the poor always with you; but me ye have not always.

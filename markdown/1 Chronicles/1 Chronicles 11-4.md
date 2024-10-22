@@ -1,0 +1,3 @@
+# 1 Chronicles 11:4
+
+And David and all Israel went to Jerusalem, which [is] Jebus; where the Jebusites [were], the inhabitants of the land.

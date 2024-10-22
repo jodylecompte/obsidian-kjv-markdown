@@ -1,0 +1,3 @@
+# Ezekiel 18:8
+
+He [that] hath not given forth upon usury, neither hath taken any increase, [that] hath withdrawn his hand from iniquity, hath executed true judgment between man and man,

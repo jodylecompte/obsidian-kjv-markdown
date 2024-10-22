@@ -1,0 +1,3 @@
+# Exodus 28:6
+
+And they shall make the ephod [of] gold, [of] blue, and [of] purple, [of] scarlet, and fine twined linen, with cunning work.

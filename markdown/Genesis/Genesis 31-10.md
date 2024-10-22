@@ -1,0 +1,3 @@
+# Genesis 31:10
+
+And it came to pass at the time that the cattle conceived, that I lifted up mine eyes, and saw in a dream, and, behold, the rams which leaped upon the cattle [were] ringstraked, speckled, and grisled.

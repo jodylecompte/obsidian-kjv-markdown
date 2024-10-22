@@ -1,0 +1,3 @@
+# Isaiah 16:11
+
+Wherefore my bowels shall sound like an harp for Moab, and mine inward parts for Kirharesh.

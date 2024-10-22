@@ -1,0 +1,3 @@
+# 1 Samuel 28:18
+
+Because thou obeyedst not the voice of the LORD, nor executedst his fierce wrath upon Amalek, therefore hath the LORD done this thing unto thee this day.

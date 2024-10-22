@@ -1,0 +1,3 @@
+# 1 Samuel 1:7
+
+And [as] he did so year by year, when she went up to the house of the LORD, so she provoked her; therefore she wept, and did not eat.

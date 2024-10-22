@@ -1,0 +1,3 @@
+# 1 John 2:4
+
+He that saith, I know him, and keepeth not his commandments, is a liar, and the truth is not in him.

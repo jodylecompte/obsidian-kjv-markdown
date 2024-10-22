@@ -1,0 +1,3 @@
+# Exodus 29:33
+
+And they shall eat those things wherewith the atonement was made, to consecrate [and] to sanctify them: but a stranger shall not eat [thereof], because they [are] holy.

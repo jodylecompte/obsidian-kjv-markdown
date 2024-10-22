@@ -1,0 +1,3 @@
+# Mark 6:53
+
+And when they had passed over, they came into the land of Gennesaret, and drew to the shore.

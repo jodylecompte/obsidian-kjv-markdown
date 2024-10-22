@@ -1,0 +1,3 @@
+# Proverbs 6:8
+
+Provideth her meat in the summer, [and] gathereth her food in the harvest.

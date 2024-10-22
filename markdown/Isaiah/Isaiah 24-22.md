@@ -1,0 +1,3 @@
+# Isaiah 24:22
+
+And they shall be gathered together, [as] prisoners are gathered in the pit, and shall be shut up in the prison, and after many days shall they be visited.

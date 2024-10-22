@@ -1,0 +1,3 @@
+# Luke 4:5
+
+And the devil, taking him up into an high mountain, shewed unto him all the kingdoms of the world in a moment of time.

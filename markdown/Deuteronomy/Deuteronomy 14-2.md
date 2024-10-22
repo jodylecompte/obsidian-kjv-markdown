@@ -1,0 +1,3 @@
+# Deuteronomy 14:2
+
+For thou [art] an holy people unto the LORD thy God, and the LORD hath chosen thee to be a peculiar people unto himself, above all the nations that [are] upon the earth.

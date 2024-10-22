@@ -1,0 +1,3 @@
+# Romans 9:3
+
+For I could wish that myself were accursed from Christ for my brethren, my kinsmen according to the flesh:

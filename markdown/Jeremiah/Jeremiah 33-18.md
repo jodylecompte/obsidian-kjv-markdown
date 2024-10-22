@@ -1,0 +1,3 @@
+# Jeremiah 33:18
+
+Neither shall the priests the Levites want a man before me to offer burnt offerings, and to kindle meat offerings, and to do sacrifice continually.

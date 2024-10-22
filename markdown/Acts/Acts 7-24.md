@@ -1,0 +1,3 @@
+# Acts 7:24
+
+And seeing one [of them] suffer wrong, he defended [him], and avenged him that was oppressed, and smote the Egyptian:

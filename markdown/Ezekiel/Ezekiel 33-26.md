@@ -1,0 +1,3 @@
+# Ezekiel 33:26
+
+Ye stand upon your sword, ye work abomination, and ye defile every one his neighbour’s wife: and shall ye possess the land?

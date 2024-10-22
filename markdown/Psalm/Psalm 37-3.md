@@ -1,0 +1,3 @@
+# Psalm 37:3
+
+Trust in the LORD, and do good; [so] shalt thou dwell in the land, and verily thou shalt be fed.

@@ -1,0 +1,3 @@
+# 2 Chronicles 13:5
+
+Ought ye not to know that the LORD God of Israel gave the kingdom over Israel to David for ever, [even] to him and to his sons by a covenant of salt?

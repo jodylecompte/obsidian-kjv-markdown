@@ -1,0 +1,3 @@
+# Matthew 27:34
+
+They gave him vinegar to drink mingled with gall: and when he had tasted [thereof], he would not drink.

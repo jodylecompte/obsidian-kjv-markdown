@@ -1,0 +1,3 @@
+# Psalm 78:8
+
+And might not be as their fathers, a stubborn and rebellious generation; a generation [that] set not their heart aright, and whose spirit was not stedfast with God.

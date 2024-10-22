@@ -1,0 +1,3 @@
+# Jeremiah 23:30
+
+Therefore, behold, I [am] against the prophets, saith the LORD, that steal my words every one from his neighbour.

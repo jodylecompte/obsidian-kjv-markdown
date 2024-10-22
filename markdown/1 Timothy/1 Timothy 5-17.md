@@ -1,0 +1,3 @@
+# 1 Timothy 5:17
+
+Let the elders that rule well be counted worthy of double honour, especially they who labour in the word and doctrine.

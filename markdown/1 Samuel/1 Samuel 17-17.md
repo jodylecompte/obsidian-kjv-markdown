@@ -1,0 +1,3 @@
+# 1 Samuel 17:17
+
+And Jesse said unto David his son, Take now for thy brethren an ephah of this parched [corn], and these ten loaves, and run to the camp to thy brethren;

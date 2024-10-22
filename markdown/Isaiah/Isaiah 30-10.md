@@ -1,0 +1,3 @@
+# Isaiah 30:10
+
+Which say to the seers, See not; and to the prophets, Prophesy not unto us right things, speak unto us smooth things, prophesy deceits:

@@ -1,0 +1,3 @@
+# Exodus 16:31
+
+And the house of Israel called the name thereof Manna: and it [was] like coriander seed, white; and the taste of it [was] like wafers [made] with honey.

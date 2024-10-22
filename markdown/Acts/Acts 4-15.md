@@ -1,0 +1,3 @@
+# Acts 4:15
+
+But when they had commanded them to go aside out of the council, they conferred among themselves,

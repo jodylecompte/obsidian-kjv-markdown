@@ -1,0 +1,3 @@
+# Luke 8:56
+
+And her parents were astonished: but he charged them that they should tell no man what was done.

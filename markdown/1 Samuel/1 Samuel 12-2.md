@@ -1,0 +1,3 @@
+# 1 Samuel 12:2
+
+And now, behold, the king walketh before you: and I am old and grayheaded; and, behold, my sons [are] with you: and I have walked before you from my childhood unto this day.

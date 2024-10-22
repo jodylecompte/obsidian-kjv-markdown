@@ -1,0 +1,3 @@
+# Jeremiah 32:40
+
+And I will make an everlasting covenant with them, that I will not turn away from them, to do them good; but I will put my fear in their hearts, that they shall not depart from me.

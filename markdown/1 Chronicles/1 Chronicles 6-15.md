@@ -1,0 +1,3 @@
+# 1 Chronicles 6:15
+
+And Jehozadak went [into captivity], when the LORD carried away Judah and Jerusalem by the hand of Nebuchadnezzar.

@@ -1,0 +1,3 @@
+# 1 John 3:2
+
+Beloved, now are we the sons of God, and it doth not yet appear what we shall be: but we know that, when he shall appear, we shall be like him; for we shall see him as he is.

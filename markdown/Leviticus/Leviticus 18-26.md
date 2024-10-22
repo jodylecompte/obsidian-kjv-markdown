@@ -1,0 +1,3 @@
+# Leviticus 18:26
+
+Ye shall therefore keep my statutes and my judgments, and shall not commit [any] of these abominations; [neither] any of your own nation, nor any stranger that sojourneth among you:

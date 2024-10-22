@@ -1,0 +1,3 @@
+# Colossians 3:5
+
+Mortify therefore your members which are upon the earth; fornication, uncleanness, inordinate affection, evil concupiscence, and covetousness, which is idolatry:

@@ -1,0 +1,3 @@
+# Psalm 39:2
+
+I was dumb with silence, I held my peace, [even] from good; and my sorrow was stirred.

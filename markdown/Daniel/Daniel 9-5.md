@@ -1,0 +1,3 @@
+# Daniel 9:5
+
+We have sinned, and have committed iniquity, and have done wickedly, and have rebelled, even by departing from thy precepts and from thy judgments:

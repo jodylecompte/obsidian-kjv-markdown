@@ -1,0 +1,3 @@
+# Psalm 68:2
+
+As smoke is driven away, [so] drive [them] away: as wax melteth before the fire, [so] let the wicked perish at the presence of God.

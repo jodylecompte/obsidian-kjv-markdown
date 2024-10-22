@@ -1,0 +1,3 @@
+# 1 Kings 1:45
+
+And Zadok the priest and Nathan the prophet have anointed him king in Gihon: and they are come up from thence rejoicing, so that the city rang again. This [is] the noise that ye have heard.

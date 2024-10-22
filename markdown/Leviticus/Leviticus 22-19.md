@@ -1,0 +1,3 @@
+# Leviticus 22:19
+
+[Ye shall offer] at your own will a male without blemish, of the beeves, of the sheep, or of the goats.

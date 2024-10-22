@@ -1,0 +1,3 @@
+# Deuteronomy 31:8
+
+And the LORD, he [it is] that doth go before thee; he will be with thee, he will not fail thee, neither forsake thee: fear not, neither be dismayed.

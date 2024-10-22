@@ -1,0 +1,3 @@
+# Job 5:4
+
+His children are far from safety, and they are crushed in the gate, neither [is there] any to deliver [them].

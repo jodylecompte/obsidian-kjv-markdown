@@ -1,0 +1,3 @@
+# 1 Kings 11:7
+
+Then did Solomon build an high place for Chemosh, the abomination of Moab, in the hill that [is] before Jerusalem, and for Molech, the abomination of the children of Ammon.

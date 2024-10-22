@@ -1,0 +1,3 @@
+# 2 Chronicles 5:14
+
+So that the priests could not stand to minister by reason of the cloud: for the glory of the LORD had filled the house of God.

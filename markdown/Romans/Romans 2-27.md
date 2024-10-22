@@ -1,0 +1,3 @@
+# Romans 2:27
+
+And shall not uncircumcision which is by nature, if it fulfil the law, judge thee, who by the letter and circumcision dost transgress the law?

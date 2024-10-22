@@ -1,0 +1,3 @@
+# Acts 9:26
+
+And when Saul was come to Jerusalem, he assayed to join himself to the disciples: but they were all afraid of him, and believed not that he was a disciple.

@@ -1,0 +1,3 @@
+# Mark 6:26
+
+And the king was exceeding sorry; [yet] for his oath’s sake, and for their sakes which sat with him, he would not reject her.

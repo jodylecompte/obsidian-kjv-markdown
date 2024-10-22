@@ -1,0 +1,3 @@
+# 1 John 2:8
+
+Again, a new commandment I write unto you, which thing is true in him and in you: because the darkness is past, and the true light now shineth.

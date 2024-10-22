@@ -1,0 +1,3 @@
+# Psalm 34:2
+
+My soul shall make her boast in the LORD: the humble shall hear [thereof], and be glad.

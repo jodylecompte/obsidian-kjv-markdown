@@ -1,0 +1,3 @@
+# Jeremiah 20:2
+
+Then Pashur smote Jeremiah the prophet, and put him in the stocks that [were] in the high gate of Benjamin, which [was] by the house of the LORD.

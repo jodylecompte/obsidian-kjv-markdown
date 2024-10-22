@@ -1,0 +1,3 @@
+# Ecclesiastes 11:10
+
+Therefore remove sorrow from thy heart, and put away evil from thy flesh: for childhood and youth [are] vanity.

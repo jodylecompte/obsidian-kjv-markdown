@@ -1,0 +1,3 @@
+# Matthew 2:20
+
+Saying, Arise, and take the young child and his mother, and go into the land of Israel: for they are dead which sought the young child’s life.

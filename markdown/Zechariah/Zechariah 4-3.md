@@ -1,0 +1,3 @@
+# Zechariah 4:3
+
+And two olive trees by it, one upon the right [side] of the bowl, and the other upon the left [side] thereof.

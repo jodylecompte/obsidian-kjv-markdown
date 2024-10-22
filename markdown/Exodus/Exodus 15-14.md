@@ -1,0 +1,3 @@
+# Exodus 15:14
+
+The people shall hear, [and] be afraid: sorrow shall take hold on the inhabitants of Palestina.

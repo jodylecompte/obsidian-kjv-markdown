@@ -1,0 +1,3 @@
+# Deuteronomy 18:1
+
+The priests the Levites, [and] all the tribe of Levi, shall have no part nor inheritance with Israel: they shall eat the offerings of the LORD made by fire, and his inheritance.

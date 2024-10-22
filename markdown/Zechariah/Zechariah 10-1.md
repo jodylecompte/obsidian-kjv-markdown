@@ -1,0 +1,3 @@
+# Zechariah 10:1
+
+Ask ye of the LORD rain in the time of the latter rain; [so] the LORD shall make bright clouds, and give them showers of rain, to every one grass in the field.

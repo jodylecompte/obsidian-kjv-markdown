@@ -1,0 +1,3 @@
+# Isaiah 40:2
+
+Speak ye comfortably to Jerusalem, and cry unto her, that her warfare is accomplished, that her iniquity is pardoned: for she hath received of the LORD’S hand double for all her sins.

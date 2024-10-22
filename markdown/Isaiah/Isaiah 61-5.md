@@ -1,0 +1,3 @@
+# Isaiah 61:5
+
+And strangers shall stand and feed your flocks, and the sons of the alien [shall be] your plowmen and your vinedressers.

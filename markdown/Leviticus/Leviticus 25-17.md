@@ -1,0 +1,3 @@
+# Leviticus 25:17
+
+Ye shall not therefore oppress one another; but thou shalt fear thy God: for I [am] the LORD your God.

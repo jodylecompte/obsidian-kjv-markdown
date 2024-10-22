@@ -1,0 +1,3 @@
+# Proverbs 13:24
+
+He that spareth his rod hateth his son: but he that loveth him chasteneth him betimes.

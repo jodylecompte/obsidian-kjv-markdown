@@ -1,0 +1,3 @@
+# Jeremiah 23:17
+
+They say still unto them that despise me, The LORD hath said, Ye shall have peace; and they say unto every one that walketh after the imagination of his own heart, No evil shall come upon you.

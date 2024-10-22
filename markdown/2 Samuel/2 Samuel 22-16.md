@@ -1,0 +1,3 @@
+# 2 Samuel 22:16
+
+And the channels of the sea appeared, the foundations of the world were discovered, at the rebuking of the LORD, at the blast of the breath of his nostrils.

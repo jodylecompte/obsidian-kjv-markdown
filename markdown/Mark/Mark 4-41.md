@@ -1,0 +1,3 @@
+# Mark 4:41
+
+And they feared exceedingly, and said one to another, What manner of man is this, that even the wind and the sea obey him?

@@ -1,0 +1,3 @@
+# 1 Peter 1:6
+
+Wherein ye greatly rejoice, though now for a season, if need be, ye are in heaviness through manifold temptations:

@@ -1,0 +1,3 @@
+# Exodus 15:27
+
+And they came to Elim, where [were] twelve wells of water, and threescore and ten palm trees: and they encamped there by the waters.

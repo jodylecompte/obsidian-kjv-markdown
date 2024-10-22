@@ -1,0 +1,3 @@
+# Numbers 12:4
+
+And the LORD spake suddenly unto Moses, and unto Aaron, and unto Miriam, Come out ye three unto the tabernacle of the congregation. And they three came out.

@@ -1,0 +1,3 @@
+# Hebrews 8:1
+
+Now of the things which we have spoken [this is] the sum: We have such an high priest, who is set on the right hand of the throne of the Majesty in the heavens;

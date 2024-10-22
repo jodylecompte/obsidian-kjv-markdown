@@ -1,0 +1,3 @@
+# Ezekiel 7:3
+
+Now [is] the end [come] upon thee, and I will send mine anger upon thee, and will judge thee according to thy ways, and will recompense upon thee all thine abominations.

@@ -1,0 +1,3 @@
+# 2 Corinthians 13:7
+
+Now I pray to God that ye do no evil; not that we should appear approved, but that ye should do that which is honest, though we be as reprobates.

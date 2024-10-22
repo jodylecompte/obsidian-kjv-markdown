@@ -1,0 +1,3 @@
+# 1 Samuel 8:15
+
+And he will take the tenth of your seed, and of your vineyards, and give to his officers, and to his servants.

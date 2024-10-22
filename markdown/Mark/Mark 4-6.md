@@ -1,0 +1,3 @@
+# Mark 4:6
+
+But when the sun was up, it was scorched; and because it had no root, it withered away.

@@ -1,0 +1,3 @@
+# James 2:5
+
+Hearken, my beloved brethren, Hath not God chosen the poor of this world rich in faith, and heirs of the kingdom which he hath promised to them that love him?

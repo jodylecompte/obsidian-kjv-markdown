@@ -1,0 +1,3 @@
+# Lamentations 5:11
+
+They ravished the women in Zion, [and] the maids in the cities of Judah.

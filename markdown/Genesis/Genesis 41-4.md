@@ -1,0 +1,3 @@
+# Genesis 41:4
+
+And the ill favoured and leanfleshed kine did eat up the seven well favoured and fat kine. So Pharaoh awoke.

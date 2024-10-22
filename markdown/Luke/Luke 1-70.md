@@ -1,0 +1,3 @@
+# Luke 1:70
+
+As he spake by the mouth of his holy prophets, which have been since the world began:

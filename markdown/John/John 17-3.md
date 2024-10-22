@@ -1,0 +1,3 @@
+# John 17:3
+
+And this is life eternal, that they might know thee the only true God, and Jesus Christ, whom thou hast sent.

@@ -1,0 +1,3 @@
+# Jeremiah 48:28
+
+O ye that dwell in Moab, leave the cities, and dwell in the rock, and be like the dove [that] maketh her nest in the sides of the hole’s mouth.

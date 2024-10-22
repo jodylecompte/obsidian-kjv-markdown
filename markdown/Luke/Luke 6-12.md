@@ -1,0 +1,3 @@
+# Luke 6:12
+
+And it came to pass in those days, that he went out into a mountain to pray, and continued all night in prayer to God.

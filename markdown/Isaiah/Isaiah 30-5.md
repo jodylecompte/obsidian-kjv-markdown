@@ -1,0 +1,3 @@
+# Isaiah 30:5
+
+They were all ashamed of a people [that] could not profit them, nor be an help nor profit, but a shame, and also a reproach.

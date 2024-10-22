@@ -1,0 +1,3 @@
+# Matthew 26:61
+
+And said, This [fellow] said, I am able to destroy the temple of God, and to build it in three days.

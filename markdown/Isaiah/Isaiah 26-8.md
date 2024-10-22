@@ -1,0 +1,3 @@
+# Isaiah 26:8
+
+Yea, in the way of thy judgments, O LORD, have we waited for thee; the desire of [our] soul [is] to thy name, and to the remembrance of thee.

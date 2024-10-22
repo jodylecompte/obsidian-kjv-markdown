@@ -1,0 +1,3 @@
+# Haggai 2:3
+
+Who [is] left among you that saw this house in her first glory? and how do ye see it now? [is it] not in your eyes in comparison of it as nothing?

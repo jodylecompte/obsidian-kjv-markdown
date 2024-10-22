@@ -1,0 +1,3 @@
+# 1 Chronicles 22:16
+
+Of the gold, the silver, and the brass, and the iron, [there is] no number. Arise [therefore], and be doing, and the LORD be with thee.

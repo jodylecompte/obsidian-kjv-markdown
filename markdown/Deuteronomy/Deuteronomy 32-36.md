@@ -1,0 +1,3 @@
+# Deuteronomy 32:36
+
+For the LORD shall judge his people, and repent himself for his servants, when he seeth that [their] power is gone, and [there is] none shut up, or left.

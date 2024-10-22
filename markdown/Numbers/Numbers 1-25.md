@@ -1,0 +1,3 @@
+# Numbers 1:25
+
+Those that were numbered of them, [even] of the tribe of Gad, [were] forty and five thousand six hundred and fifty.

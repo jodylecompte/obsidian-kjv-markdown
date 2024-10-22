@@ -1,0 +1,3 @@
+# Philippians 1:5
+
+For your fellowship in the gospel from the first day until now;

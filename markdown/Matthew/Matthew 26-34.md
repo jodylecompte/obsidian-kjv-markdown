@@ -1,0 +1,3 @@
+# Matthew 26:34
+
+Jesus said unto him, Verily I say unto thee, That this night, before the cock crow, thou shalt deny me thrice.

@@ -1,0 +1,3 @@
+# 1 Samuel 21:13
+
+And he changed his behaviour before them, and feigned himself mad in their hands, and scrabbled on the doors of the gate, and let his spittle fall down upon his beard.

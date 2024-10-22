@@ -1,0 +1,3 @@
+# Psalm 62:12
+
+Also unto thee, O Lord, [belongeth] mercy: for thou renderest to every man according to his work.

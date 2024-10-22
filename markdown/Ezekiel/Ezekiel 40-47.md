@@ -1,0 +1,3 @@
+# Ezekiel 40:47
+
+So he measured the court, an hundred cubits long, and an hundred cubits broad, foursquare; and the altar [that was] before the house.

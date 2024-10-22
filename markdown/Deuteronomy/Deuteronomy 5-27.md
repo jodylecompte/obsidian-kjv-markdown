@@ -1,0 +1,3 @@
+# Deuteronomy 5:27
+
+Go thou near, and hear all that the LORD our God shall say: and speak thou unto us all that the LORD our God shall speak unto thee; and we will hear [it], and do [it].

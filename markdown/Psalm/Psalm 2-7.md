@@ -1,0 +1,3 @@
+# Psalm 2:7
+
+I will declare the decree: the LORD hath said unto me, Thou [art] my Son; this day have I begotten thee.

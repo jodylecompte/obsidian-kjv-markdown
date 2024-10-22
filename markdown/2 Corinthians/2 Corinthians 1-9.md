@@ -1,0 +1,3 @@
+# 2 Corinthians 1:9
+
+But we had the sentence of death in ourselves, that we should not trust in ourselves, but in God which raiseth the dead:

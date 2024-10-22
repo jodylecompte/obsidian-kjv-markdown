@@ -1,0 +1,3 @@
+# 1 Samuel 6:20
+
+And the men of Bethshemesh said, Who is able to stand before this holy LORD God? and to whom shall he go up from us?

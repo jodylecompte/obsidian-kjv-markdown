@@ -1,0 +1,3 @@
+# Joshua 10:36
+
+And Joshua went up from Eglon, and all Israel with him, unto Hebron; and they fought against it:

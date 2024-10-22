@@ -1,0 +1,3 @@
+# Proverbs 15:15
+
+All the days of the afflicted [are] evil: but he that is of a merry heart [hath] a continual feast.

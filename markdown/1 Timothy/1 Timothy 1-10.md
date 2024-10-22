@@ -1,0 +1,3 @@
+# 1 Timothy 1:10
+
+For whoremongers, for them that defile themselves with mankind, for menstealers, for liars, for perjured persons, and if there be any other thing that is contrary to sound doctrine;

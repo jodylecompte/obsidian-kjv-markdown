@@ -1,0 +1,3 @@
+# Luke 4:13
+
+And when the devil had ended all the temptation, he departed from him for a season.

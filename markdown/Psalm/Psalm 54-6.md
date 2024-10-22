@@ -1,0 +1,3 @@
+# Psalm 54:6
+
+I will freely sacrifice unto thee: I will praise thy name, O LORD; for [it is] good.

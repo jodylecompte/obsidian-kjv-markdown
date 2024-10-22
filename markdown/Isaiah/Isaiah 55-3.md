@@ -1,0 +1,3 @@
+# Isaiah 55:3
+
+Incline your ear, and come unto me: hear, and your soul shall live; and I will make an everlasting covenant with you, [even] the sure mercies of David.

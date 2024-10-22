@@ -1,0 +1,3 @@
+# Psalm 33:2
+
+Praise the LORD with harp: sing unto him with the psaltery [and] an instrument of ten strings.

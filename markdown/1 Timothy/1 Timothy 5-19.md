@@ -1,0 +1,3 @@
+# 1 Timothy 5:19
+
+Against an elder receive not an accusation, but before two or three witnesses.

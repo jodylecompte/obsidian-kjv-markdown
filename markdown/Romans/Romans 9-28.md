@@ -1,0 +1,3 @@
+# Romans 9:28
+
+For he will finish the work, and cut [it] short in righteousness: because a short work will the Lord make upon the earth.

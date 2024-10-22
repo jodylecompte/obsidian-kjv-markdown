@@ -1,0 +1,3 @@
+# 2 Samuel 13:12
+
+And she answered him, Nay, my brother, do not force me; for no such thing ought to be done in Israel: do not thou this folly.

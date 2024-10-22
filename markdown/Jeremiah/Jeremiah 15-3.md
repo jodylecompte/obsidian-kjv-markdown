@@ -1,0 +1,3 @@
+# Jeremiah 15:3
+
+And I will appoint over them four kinds, saith the LORD: the sword to slay, and the dogs to tear, and the fowls of the heaven, and the beasts of the earth, to devour and destroy.

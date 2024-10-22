@@ -1,0 +1,3 @@
+# John 8:35
+
+And the servant abideth not in the house for ever: [but] the Son abideth ever.

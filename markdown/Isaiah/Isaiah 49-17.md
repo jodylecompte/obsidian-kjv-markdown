@@ -1,0 +1,3 @@
+# Isaiah 49:17
+
+Thy children shall make haste; thy destroyers and they that made thee waste shall go forth of thee.

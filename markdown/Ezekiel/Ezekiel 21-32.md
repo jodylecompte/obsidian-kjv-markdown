@@ -1,0 +1,3 @@
+# Ezekiel 21:32
+
+Thou shalt be for fuel to the fire; thy blood shall be in the midst of the land; thou shalt be no [more] remembered: for I the LORD have spoken [it].

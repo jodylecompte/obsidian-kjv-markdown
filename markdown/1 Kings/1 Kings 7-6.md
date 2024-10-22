@@ -1,0 +1,3 @@
+# 1 Kings 7:6
+
+And he made a porch of pillars; the length thereof [was] fifty cubits, and the breadth thereof thirty cubits: and the porch [was] before them: and the [other] pillars and the thick beam [were] before them.

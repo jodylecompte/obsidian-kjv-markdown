@@ -1,0 +1,3 @@
+# Mark 6:46
+
+And when he had sent them away, he departed into a mountain to pray.

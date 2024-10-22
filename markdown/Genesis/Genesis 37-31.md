@@ -1,0 +1,3 @@
+# Genesis 37:31
+
+And they took Joseph’s coat, and killed a kid of the goats, and dipped the coat in the blood;

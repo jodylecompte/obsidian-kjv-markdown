@@ -1,0 +1,3 @@
+# Matthew 5:27
+
+Ye have heard that it was said by them of old time, Thou shalt not commit adultery:

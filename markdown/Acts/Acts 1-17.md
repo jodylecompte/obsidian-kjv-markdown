@@ -1,0 +1,3 @@
+# Acts 1:17
+
+For he was numbered with us, and had obtained part of this ministry.

@@ -1,0 +1,3 @@
+# Jeremiah 33:20
+
+Thus saith the LORD; If ye can break my covenant of the day, and my covenant of the night, and that there should not be day and night in their season;

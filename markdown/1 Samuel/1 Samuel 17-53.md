@@ -1,0 +1,3 @@
+# 1 Samuel 17:53
+
+And the children of Israel returned from chasing after the Philistines, and they spoiled their tents.

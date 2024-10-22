@@ -1,0 +1,3 @@
+# Jeremiah 2:11
+
+Hath a nation changed [their] gods, which [are] yet no gods? but my people have changed their glory for [that which] doth not profit.

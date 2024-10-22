@@ -1,0 +1,3 @@
+# 1 Corinthians 4:13
+
+Being defamed, we intreat: we are made as the filth of the world, [and are] the offscouring of all things unto this day.

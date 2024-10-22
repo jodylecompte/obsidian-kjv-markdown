@@ -1,0 +1,3 @@
+# Joshua 13:22
+
+Balaam also the son of Beor, the soothsayer, did the children of Israel slay with the sword among them that were slain by them.

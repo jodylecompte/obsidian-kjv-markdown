@@ -1,0 +1,3 @@
+# Psalm 100:4
+
+Enter into his gates with thanksgiving, [and] into his courts with praise: be thankful unto him, [and] bless his name.

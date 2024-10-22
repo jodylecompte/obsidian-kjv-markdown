@@ -1,0 +1,3 @@
+# Acts 4:26
+
+The kings of the earth stood up, and the rulers were gathered together against the Lord, and against his Christ.

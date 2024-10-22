@@ -1,0 +1,3 @@
+# Romans 7:18
+
+For I know that in me (that is, in my flesh,) dwelleth no good thing: for to will is present with me; but [how] to perform that which is good I find not.

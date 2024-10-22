@@ -1,0 +1,3 @@
+# Nehemiah 5:4
+
+There were also that said, We have borrowed money for the king’s tribute, [and that upon] our lands and vineyards.

@@ -1,0 +1,3 @@
+# Ezekiel 34:20
+
+Therefore thus saith the Lord GOD unto them; Behold, I, [even] I, will judge between the fat cattle and between the lean cattle.

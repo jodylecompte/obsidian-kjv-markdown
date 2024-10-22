@@ -1,0 +1,3 @@
+# Deuteronomy 6:5
+
+And thou shalt love the LORD thy God with all thine heart, and with all thy soul, and with all thy might.

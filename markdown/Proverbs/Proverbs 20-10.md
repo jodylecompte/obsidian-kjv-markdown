@@ -1,0 +1,3 @@
+# Proverbs 20:10
+
+Divers weights, [and] divers measures, both of them [are] alike abomination to the LORD.

@@ -1,0 +1,3 @@
+# 2 Samuel 3:28
+
+And afterward when David heard [it], he said, I and my kingdom [are] guiltless before the LORD for ever from the blood of Abner the son of Ner:

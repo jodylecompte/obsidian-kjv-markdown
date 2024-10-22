@@ -1,0 +1,3 @@
+# Nehemiah 11:30
+
+Zanoah, Adullam, and [in] their villages, at Lachish, and the fields thereof, at Azekah, and [in] the villages thereof. And they dwelt from Beersheba unto the valley of Hinnom.

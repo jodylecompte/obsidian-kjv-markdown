@@ -1,0 +1,3 @@
+# Luke 2:17
+
+And when they had seen [it], they made known abroad the saying which was told them concerning this child.

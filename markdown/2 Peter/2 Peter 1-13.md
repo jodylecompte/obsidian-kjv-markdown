@@ -1,0 +1,3 @@
+# 2 Peter 1:13
+
+Yea, I think it meet, as long as I am in this tabernacle, to stir you up by putting [you] in remembrance;

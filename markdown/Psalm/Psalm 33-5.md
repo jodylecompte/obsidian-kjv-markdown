@@ -1,0 +1,3 @@
+# Psalm 33:5
+
+He loveth righteousness and judgment: the earth is full of the goodness of the LORD.

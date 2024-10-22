@@ -1,0 +1,3 @@
+# 2 Chronicles 30:7
+
+And be not ye like your fathers, and like your brethren, which trespassed against the LORD God of their fathers, [who] therefore gave them up to desolation, as ye see.

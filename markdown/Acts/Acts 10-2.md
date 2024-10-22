@@ -1,0 +1,3 @@
+# Acts 10:2
+
+[A] devout [man], and one that feared God with all his house, which gave much alms to the people, and prayed to God alway.

@@ -1,0 +1,3 @@
+# Isaiah 37:23
+
+Whom hast thou reproached and blasphemed? and against whom hast thou exalted [thy] voice, and lifted up thine eyes on high? [even] against the Holy One of Israel.

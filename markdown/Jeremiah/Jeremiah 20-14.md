@@ -1,0 +1,3 @@
+# Jeremiah 20:14
+
+Cursed [be] the day wherein I was born: let not the day wherein my mother bare me be blessed.

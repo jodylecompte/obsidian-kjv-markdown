@@ -1,0 +1,3 @@
+# 1 Samuel 21:1
+
+Then came David to Nob to Ahimelech the priest: and Ahimelech was afraid at the meeting of David, and said unto him, Why [art] thou alone, and no man with thee?

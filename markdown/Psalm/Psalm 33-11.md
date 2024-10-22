@@ -1,0 +1,3 @@
+# Psalm 33:11
+
+The counsel of the LORD standeth for ever, the thoughts of his heart to all generations.

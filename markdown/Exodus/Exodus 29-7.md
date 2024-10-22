@@ -1,0 +1,3 @@
+# Exodus 29:7
+
+Then shalt thou take the anointing oil, and pour [it] upon his head, and anoint him.

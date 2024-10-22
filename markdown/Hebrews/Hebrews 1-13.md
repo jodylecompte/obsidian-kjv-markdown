@@ -1,0 +1,3 @@
+# Hebrews 1:13
+
+But to which of the angels said he at any time, Sit on my right hand, until I make thine enemies thy footstool?

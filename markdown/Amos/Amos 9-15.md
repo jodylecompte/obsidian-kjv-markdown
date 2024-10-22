@@ -1,0 +1,3 @@
+# Amos 9:15
+
+And I will plant them upon their land, and they shall no more be pulled up out of their land which I have given them, saith the LORD thy God.

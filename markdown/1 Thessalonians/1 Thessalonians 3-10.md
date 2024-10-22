@@ -1,0 +1,3 @@
+# 1 Thessalonians 3:10
+
+Night and day praying exceedingly that we might see your face, and might perfect that which is lacking in your faith?

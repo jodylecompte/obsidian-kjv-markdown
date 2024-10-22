@@ -1,0 +1,3 @@
+# Numbers 22:18
+
+And Balaam answered and said unto the servants of Balak, If Balak would give me his house full of silver and gold, I cannot go beyond the word of the LORD my God, to do less or more.

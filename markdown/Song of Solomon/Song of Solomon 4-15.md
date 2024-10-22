@@ -1,0 +1,3 @@
+# Song of Solomon 4:15
+
+A fountain of gardens, a well of living waters, and streams from Lebanon.

@@ -1,0 +1,3 @@
+# 2 Kings 2:1
+
+And it came to pass, when the LORD would take up Elijah into heaven by a whirlwind, that Elijah went with Elisha from Gilgal.

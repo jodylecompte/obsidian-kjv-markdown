@@ -1,0 +1,3 @@
+# Deuteronomy 34:10
+
+And there arose not a prophet since in Israel like unto Moses, whom the LORD knew face to face,

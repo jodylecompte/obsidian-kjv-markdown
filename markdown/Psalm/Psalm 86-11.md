@@ -1,0 +1,3 @@
+# Psalm 86:11
+
+Teach me thy way, O LORD; I will walk in thy truth: unite my heart to fear thy name.

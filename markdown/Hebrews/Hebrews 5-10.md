@@ -1,0 +1,3 @@
+# Hebrews 5:10
+
+Called of God an high priest after the order of Melchisedec.

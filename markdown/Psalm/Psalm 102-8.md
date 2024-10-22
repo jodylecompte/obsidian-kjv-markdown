@@ -1,0 +1,3 @@
+# Psalm 102:8
+
+Mine enemies reproach me all the day; [and] they that are mad against me are sworn against me.

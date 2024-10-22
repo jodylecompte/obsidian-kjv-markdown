@@ -1,0 +1,3 @@
+# Psalm 31:6
+
+I have hated them that regard lying vanities: but I trust in the LORD.

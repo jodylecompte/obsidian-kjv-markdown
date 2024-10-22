@@ -1,0 +1,3 @@
+# Ezekiel 27:19
+
+Dan also and Javan going to and fro occupied in thy fairs: bright iron, cassia, and calamus, were in thy market.

@@ -1,0 +1,3 @@
+# Proverbs 17:3
+
+The fining pot [is] for silver, and the furnace for gold: but the LORD trieth the hearts.

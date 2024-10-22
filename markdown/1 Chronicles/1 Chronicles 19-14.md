@@ -1,0 +1,3 @@
+# 1 Chronicles 19:14
+
+So Joab and the people that [were] with him drew nigh before the Syrians unto the battle; and they fled before him.

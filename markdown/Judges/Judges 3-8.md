@@ -1,0 +1,3 @@
+# Judges 3:8
+
+Therefore the anger of the LORD was hot against Israel, and he sold them into the hand of Chushanrishathaim king of Mesopotamia: and the children of Israel served Chushanrishathaim eight years.

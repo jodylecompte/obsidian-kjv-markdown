@@ -1,0 +1,3 @@
+# Genesis 48:12
+
+And Joseph brought them out from between his knees, and he bowed himself with his face to the earth.

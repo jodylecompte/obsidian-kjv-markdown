@@ -1,0 +1,3 @@
+# 2 Samuel 5:9
+
+So David dwelt in the fort, and called it the city of David. And David built round about from Millo and inward.

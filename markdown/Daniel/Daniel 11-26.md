@@ -1,0 +1,3 @@
+# Daniel 11:26
+
+Yea, they that feed of the portion of his meat shall destroy him, and his army shall overflow: and many shall fall down slain.

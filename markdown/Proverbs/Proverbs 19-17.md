@@ -1,0 +1,3 @@
+# Proverbs 19:17
+
+He that hath pity upon the poor lendeth unto the LORD; and that which he hath given will he pay him again.

@@ -1,0 +1,3 @@
+# Proverbs 27:2
+
+Let another man praise thee, and not thine own mouth; a stranger, and not thine own lips.

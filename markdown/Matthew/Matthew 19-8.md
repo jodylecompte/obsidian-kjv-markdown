@@ -1,0 +1,3 @@
+# Matthew 19:8
+
+He saith unto them, Moses because of the hardness of your hearts suffered you to put away your wives: but from the beginning it was not so.

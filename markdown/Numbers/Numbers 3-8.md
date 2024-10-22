@@ -1,0 +1,3 @@
+# Numbers 3:8
+
+And they shall keep all the instruments of the tabernacle of the congregation, and the charge of the children of Israel, to do the service of the tabernacle.

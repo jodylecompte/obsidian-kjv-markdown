@@ -1,0 +1,3 @@
+# Genesis 10:8
+
+And Cush begat Nimrod: he began to be a mighty one in the earth.

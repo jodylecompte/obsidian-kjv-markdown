@@ -1,0 +1,3 @@
+# Exodus 8:12
+
+And Moses and Aaron went out from Pharaoh: and Moses cried unto the LORD because of the frogs which he had brought against Pharaoh.

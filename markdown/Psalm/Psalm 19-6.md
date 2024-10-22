@@ -1,0 +1,3 @@
+# Psalm 19:6
+
+His going forth [is] from the end of the heaven, and his circuit unto the ends of it: and there is nothing hid from the heat thereof.

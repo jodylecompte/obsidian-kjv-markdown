@@ -1,0 +1,3 @@
+# 1 John 5:7
+
+For there are three that bear record in heaven, the Father, the Word, and the Holy Ghost: and these three are one.

@@ -1,0 +1,3 @@
+# Deuteronomy 31:18
+
+And I will surely hide my face in that day for all the evils which they shall have wrought, in that they are turned unto other gods.

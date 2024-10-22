@@ -1,0 +1,3 @@
+# Joel 1:9
+
+The meat offering and the drink offering is cut off from the house of the LORD; the priests, the LORD’S ministers, mourn.

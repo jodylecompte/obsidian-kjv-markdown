@@ -1,0 +1,3 @@
+# Judges 16:15
+
+And she said unto him, How canst thou say, I love thee, when thine heart [is] not with me? thou hast mocked me these three times, and hast not told me wherein thy great strength [lieth].

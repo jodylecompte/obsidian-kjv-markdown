@@ -1,0 +1,3 @@
+# Psalm 77:4
+
+Thou holdest mine eyes waking: I am so troubled that I cannot speak.

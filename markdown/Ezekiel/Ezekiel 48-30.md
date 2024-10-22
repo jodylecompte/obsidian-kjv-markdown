@@ -1,0 +1,3 @@
+# Ezekiel 48:30
+
+And these [are] the goings out of the city on the north side, four thousand and five hundred measures.

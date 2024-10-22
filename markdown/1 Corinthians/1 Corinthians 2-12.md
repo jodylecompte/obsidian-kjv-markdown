@@ -1,0 +1,3 @@
+# 1 Corinthians 2:12
+
+Now we have received, not the spirit of the world, but the spirit which is of God; that we might know the things that are freely given to us of God.

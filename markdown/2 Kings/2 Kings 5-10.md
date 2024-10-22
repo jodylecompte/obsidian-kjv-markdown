@@ -1,0 +1,3 @@
+# 2 Kings 5:10
+
+And Elisha sent a messenger unto him, saying, Go and wash in Jordan seven times, and thy flesh shall come again to thee, and thou shalt be clean.

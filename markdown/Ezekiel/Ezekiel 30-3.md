@@ -1,0 +1,3 @@
+# Ezekiel 30:3
+
+For the day [is] near, even the day of the LORD [is] near, a cloudy day; it shall be the time of the heathen.

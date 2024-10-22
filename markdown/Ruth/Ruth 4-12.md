@@ -1,0 +1,3 @@
+# Ruth 4:12
+
+And let thy house be like the house of Pharez, whom Tamar bare unto Judah, of the seed which the LORD shall give thee of this young woman.

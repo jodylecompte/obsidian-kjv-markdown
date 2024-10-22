@@ -1,0 +1,3 @@
+# Romans 14:22
+
+Hast thou faith? have [it] to thyself before God. Happy [is] he that condemneth not himself in that thing which he alloweth.

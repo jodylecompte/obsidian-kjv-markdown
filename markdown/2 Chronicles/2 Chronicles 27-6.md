@@ -1,0 +1,3 @@
+# 2 Chronicles 27:6
+
+So Jotham became mighty, because he prepared his ways before the LORD his God.

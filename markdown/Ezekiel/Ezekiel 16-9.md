@@ -1,0 +1,3 @@
+# Ezekiel 16:9
+
+Then washed I thee with water; yea, I throughly washed away thy blood from thee, and I anointed thee with oil.

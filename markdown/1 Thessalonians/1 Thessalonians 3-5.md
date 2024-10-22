@@ -1,0 +1,3 @@
+# 1 Thessalonians 3:5
+
+For this cause, when I could no longer forbear, I sent to know your faith, lest by some means the tempter have tempted you, and our labour be in vain.

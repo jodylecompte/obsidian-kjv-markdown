@@ -1,0 +1,3 @@
+# Ezekiel 44:1
+
+Then he brought me back the way of the gate of the outward sanctuary which looketh toward the east; and it [was] shut.

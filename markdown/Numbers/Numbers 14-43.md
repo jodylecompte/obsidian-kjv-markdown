@@ -1,0 +1,3 @@
+# Numbers 14:43
+
+For the Amalekites and the Canaanites [are] there before you, and ye shall fall by the sword: because ye are turned away from the LORD, therefore the LORD will not be with you.

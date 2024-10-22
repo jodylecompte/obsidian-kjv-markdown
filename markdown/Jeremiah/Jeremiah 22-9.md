@@ -1,0 +1,3 @@
+# Jeremiah 22:9
+
+Then they shall answer, Because they have forsaken the covenant of the LORD their God, and worshipped other gods, and served them.

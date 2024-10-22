@@ -1,0 +1,3 @@
+# Proverbs 4:11
+
+I have taught thee in the way of wisdom; I have led thee in right paths.

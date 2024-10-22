@@ -1,0 +1,3 @@
+# 1 Chronicles 22:13
+
+Then shalt thou prosper, if thou takest heed to fulfil the statutes and judgments which the LORD charged Moses with concerning Israel: be strong, and of good courage; dread not, nor be dismayed.

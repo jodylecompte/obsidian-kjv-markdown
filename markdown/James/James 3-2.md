@@ -1,0 +1,3 @@
+# James 3:2
+
+For in many things we offend all. If any man offend not in word, the same [is] a perfect man, [and] able also to bridle the whole body.

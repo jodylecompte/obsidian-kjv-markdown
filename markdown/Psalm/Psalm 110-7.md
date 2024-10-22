@@ -1,0 +1,3 @@
+# Psalm 110:7
+
+He shall drink of the brook in the way: therefore shall he lift up the head.

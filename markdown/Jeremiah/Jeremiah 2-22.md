@@ -1,0 +1,3 @@
+# Jeremiah 2:22
+
+For though thou wash thee with nitre, and take thee much soap, [yet] thine iniquity is marked before me, saith the Lord GOD.

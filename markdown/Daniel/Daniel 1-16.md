@@ -1,0 +1,3 @@
+# Daniel 1:16
+
+Thus Melzar took away the portion of their meat, and the wine that they should drink; and gave them pulse.

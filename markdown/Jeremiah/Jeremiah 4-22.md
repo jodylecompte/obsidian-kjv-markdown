@@ -1,0 +1,3 @@
+# Jeremiah 4:22
+
+For my people [is] foolish, they have not known me; they [are] sottish children, and they have none understanding: they [are] wise to do evil, but to do good they have no knowledge.

@@ -1,0 +1,3 @@
+# Psalm 83:12
+
+Who said, Let us take to ourselves the houses of God in possession.

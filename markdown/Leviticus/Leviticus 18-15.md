@@ -1,0 +1,3 @@
+# Leviticus 18:15
+
+Thou shalt not uncover the nakedness of thy daughter in law: she [is] thy son’s wife; thou shalt not uncover her nakedness.

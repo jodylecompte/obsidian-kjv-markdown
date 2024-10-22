@@ -1,0 +1,3 @@
+# Psalm 99:6
+
+Moses and Aaron among his priests, and Samuel among them that call upon his name; they called upon the LORD, and he answered them.

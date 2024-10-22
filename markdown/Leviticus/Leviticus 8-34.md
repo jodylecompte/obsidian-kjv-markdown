@@ -1,0 +1,3 @@
+# Leviticus 8:34
+
+As he hath done this day, [so] the LORD hath commanded to do, to make an atonement for you.

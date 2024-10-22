@@ -1,0 +1,3 @@
+# Romans 15:9
+
+And that the Gentiles might glorify God for [his] mercy; as it is written, For this cause I will confess to thee among the Gentiles, and sing unto thy name.

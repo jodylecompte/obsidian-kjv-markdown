@@ -1,0 +1,3 @@
+# Jeremiah 30:20
+
+Their children also shall be as aforetime, and their congregation shall be established before me, and I will punish all that oppress them.

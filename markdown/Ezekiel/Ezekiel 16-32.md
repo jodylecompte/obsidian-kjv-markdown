@@ -1,0 +1,3 @@
+# Ezekiel 16:32
+
+[But as] a wife that committeth adultery, [which] taketh strangers instead of her husband!

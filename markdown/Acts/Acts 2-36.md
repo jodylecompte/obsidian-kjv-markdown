@@ -1,0 +1,3 @@
+# Acts 2:36
+
+Therefore let all the house of Israel know assuredly, that God hath made that same Jesus, whom ye have crucified, both Lord and Christ.

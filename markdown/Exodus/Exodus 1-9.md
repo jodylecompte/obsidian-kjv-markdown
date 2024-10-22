@@ -1,0 +1,3 @@
+# Exodus 1:9
+
+And he said unto his people, Behold, the people of the children of Israel [are] more and mightier than we:

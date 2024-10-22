@@ -1,0 +1,3 @@
+# Matthew 17:18
+
+And Jesus rebuked the devil; and he departed out of him: and the child was cured from that very hour.

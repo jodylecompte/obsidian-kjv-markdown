@@ -1,0 +1,3 @@
+# Exodus 13:6
+
+Seven days thou shalt eat unleavened bread, and in the seventh day [shall be] a feast to the LORD.

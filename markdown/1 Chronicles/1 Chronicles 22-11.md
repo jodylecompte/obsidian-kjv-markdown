@@ -1,0 +1,3 @@
+# 1 Chronicles 22:11
+
+Now, my son, the LORD be with thee; and prosper thou, and build the house of the LORD thy God, as he hath said of thee.

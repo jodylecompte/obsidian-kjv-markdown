@@ -1,0 +1,3 @@
+# Deuteronomy 27:16
+
+Cursed [be] he that setteth light by his father or his mother. And all the people shall say, Amen.

@@ -1,0 +1,3 @@
+# Deuteronomy 32:4
+
+[He is] the Rock, his work [is] perfect: for all his ways [are] judgment: a God of truth and without iniquity, just and right [is] he.

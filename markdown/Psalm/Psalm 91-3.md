@@ -1,0 +1,3 @@
+# Psalm 91:3
+
+Surely he shall deliver thee from the snare of the fowler, [and] from the noisome pestilence.

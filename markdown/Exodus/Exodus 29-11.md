@@ -1,0 +1,3 @@
+# Exodus 29:11
+
+And thou shalt kill the bullock before the LORD, [by] the door of the tabernacle of the congregation.

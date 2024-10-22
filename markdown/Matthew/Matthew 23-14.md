@@ -1,0 +1,3 @@
+# Matthew 23:14
+
+Woe unto you, scribes and Pharisees, hypocrites! for ye devour widows’ houses, and for a pretence make long prayer: therefore ye shall receive the greater damnation.

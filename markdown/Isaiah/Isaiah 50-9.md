@@ -1,0 +1,3 @@
+# Isaiah 50:9
+
+Behold, the Lord GOD will help me; who [is] he [that] shall condemn me? lo, they all shall wax old as a garment; the moth shall eat them up.

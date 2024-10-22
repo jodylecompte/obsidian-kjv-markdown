@@ -1,0 +1,3 @@
+# 1 Kings 2:25
+
+And king Solomon sent by the hand of Benaiah the son of Jehoiada; and he fell upon him that he died.

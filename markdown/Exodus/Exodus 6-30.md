@@ -1,0 +1,3 @@
+# Exodus 6:30
+
+And Moses said before the LORD, Behold, I [am] of uncircumcised lips, and how shall Pharaoh hearken unto me?

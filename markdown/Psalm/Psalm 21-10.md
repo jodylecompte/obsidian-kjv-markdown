@@ -1,0 +1,3 @@
+# Psalm 21:10
+
+Their fruit shalt thou destroy from the earth, and their seed from among the children of men.

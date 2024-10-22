@@ -1,0 +1,3 @@
+# Deuteronomy 18:21
+
+And if thou say in thine heart, How shall we know the word which the LORD hath not spoken?

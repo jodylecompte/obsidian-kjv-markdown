@@ -1,0 +1,3 @@
+# Matthew 20:9
+
+And when they came that [were hired] about the eleventh hour, they received every man a penny.

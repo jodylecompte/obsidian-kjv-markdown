@@ -1,0 +1,3 @@
+# John 11:9
+
+Jesus answered, Are there not twelve hours in the day? If any man walk in the day, he stumbleth not, because he seeth the light of this world.

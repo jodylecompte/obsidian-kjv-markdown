@@ -1,0 +1,3 @@
+# 2 Thessalonians 3:1
+
+Finally, brethren, pray for us, that the word of the Lord may have [free] course, and be glorified, even as [it is] with you:

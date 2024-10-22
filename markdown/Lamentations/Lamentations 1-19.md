@@ -1,0 +1,3 @@
+# Lamentations 1:19
+
+I called for my lovers, [but] they deceived me: my priests and mine elders gave up the ghost in the city, while they sought their meat to relieve their souls.

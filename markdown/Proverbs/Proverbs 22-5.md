@@ -1,0 +1,3 @@
+# Proverbs 22:5
+
+Thorns [and] snares [are] in the way of the froward: he that doth keep his soul shall be far from them.

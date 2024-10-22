@@ -1,0 +1,3 @@
+# Numbers 1:35
+
+Those that were numbered of them, [even] of the tribe of Manasseh, [were] thirty and two thousand and two hundred.

@@ -1,0 +1,3 @@
+# Isaiah 40:3
+
+The voice of him that crieth in the wilderness, Prepare ye the way of the LORD, make straight in the desert a highway for our God.

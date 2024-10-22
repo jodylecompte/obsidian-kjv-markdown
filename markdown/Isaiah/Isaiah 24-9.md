@@ -1,0 +1,3 @@
+# Isaiah 24:9
+
+They shall not drink wine with a song; strong drink shall be bitter to them that drink it.

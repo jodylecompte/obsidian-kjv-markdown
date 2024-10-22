@@ -1,0 +1,3 @@
+# Genesis 2:22
+
+And the rib, which the LORD God had taken from man, made he a woman, and brought her unto the man.

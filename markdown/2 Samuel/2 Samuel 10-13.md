@@ -1,0 +1,3 @@
+# 2 Samuel 10:13
+
+And Joab drew nigh, and the people that [were] with him, unto the battle against the Syrians: and they fled before him.

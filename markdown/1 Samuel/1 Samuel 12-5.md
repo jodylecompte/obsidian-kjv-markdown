@@ -1,0 +1,3 @@
+# 1 Samuel 12:5
+
+And he said unto them, The LORD [is] witness against you, and his anointed [is] witness this day, that ye have not found ought in my hand. And they answered, [He is] witness.

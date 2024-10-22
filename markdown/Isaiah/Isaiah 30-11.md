@@ -1,0 +1,3 @@
+# Isaiah 30:11
+
+Get you out of the way, turn aside out of the path, cause the Holy One of Israel to cease from before us.

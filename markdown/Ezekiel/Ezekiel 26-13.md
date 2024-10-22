@@ -1,0 +1,3 @@
+# Ezekiel 26:13
+
+And I will cause the noise of thy songs to cease; and the sound of thy harps shall be no more heard.

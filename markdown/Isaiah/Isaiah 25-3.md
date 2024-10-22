@@ -1,0 +1,3 @@
+# Isaiah 25:3
+
+Therefore shall the strong people glorify thee, the city of the terrible nations shall fear thee.

@@ -1,0 +1,3 @@
+# Ecclesiastes 3:7
+
+A time to rend, and a time to sew; a time to keep silence, and a time to speak;

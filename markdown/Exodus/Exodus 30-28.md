@@ -1,0 +1,3 @@
+# Exodus 30:28
+
+And the altar of burnt offering with all his vessels, and the laver and his foot.

@@ -1,0 +1,3 @@
+# Genesis 12:7
+
+And the LORD appeared unto Abram, and said, Unto thy seed will I give this land: and there builded he an altar unto the LORD, who appeared unto him.

@@ -1,0 +1,3 @@
+# Numbers 3:40
+
+And the LORD said unto Moses, Number all the firstborn of the males of the children of Israel from a month old and upward, and take the number of their names.

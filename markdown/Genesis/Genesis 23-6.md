@@ -1,0 +1,3 @@
+# Genesis 23:6
+
+Hear us, my lord: thou [art] a mighty prince among us: in the choice of our sepulchres bury thy dead; none of us shall withhold from thee his sepulchre, but that thou mayest bury thy dead.

@@ -1,0 +1,3 @@
+# 1 Peter 4:13
+
+But rejoice, inasmuch as ye are partakers of Christ’s sufferings; that, when his glory shall be revealed, ye may be glad also with exceeding joy.

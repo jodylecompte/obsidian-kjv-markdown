@@ -1,0 +1,3 @@
+# 1 Peter 1:25
+
+But the word of the Lord endureth for ever. And this is the word which by the gospel is preached unto you.

@@ -1,0 +1,3 @@
+# Exodus 7:9
+
+When Pharaoh shall speak unto you, saying, Shew a miracle for you: then thou shalt say unto Aaron, Take thy rod, and cast [it] before Pharaoh, [and] it shall become a serpent.

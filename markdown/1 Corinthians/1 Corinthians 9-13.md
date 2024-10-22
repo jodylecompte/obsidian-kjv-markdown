@@ -1,0 +1,3 @@
+# 1 Corinthians 9:13
+
+Do ye not know that they which minister about holy things live [of the things] of the temple? and they which wait at the altar are partakers with the altar?

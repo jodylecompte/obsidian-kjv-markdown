@@ -1,0 +1,3 @@
+# Leviticus 7:13
+
+Besides the cakes, he shall offer [for] his offering leavened bread with the sacrifice of thanksgiving of his peace offerings.

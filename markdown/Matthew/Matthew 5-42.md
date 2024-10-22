@@ -1,0 +1,3 @@
+# Matthew 5:42
+
+Give to him that asketh thee, and from him that would borrow of thee turn not thou away.

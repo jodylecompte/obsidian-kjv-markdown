@@ -1,0 +1,3 @@
+# John 6:64
+
+But there are some of you that believe not. For Jesus knew from the beginning who they were that believed not, and who should betray him.

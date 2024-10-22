@@ -1,0 +1,3 @@
+# Daniel 3:18
+
+But if not, be it known unto thee, O king, that we will not serve thy gods, nor worship the golden image which thou hast set up.

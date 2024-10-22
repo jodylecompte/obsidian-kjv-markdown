@@ -1,0 +1,3 @@
+# Amos 5:21
+
+I hate, I despise your feast days, and I will not smell in your solemn assemblies.

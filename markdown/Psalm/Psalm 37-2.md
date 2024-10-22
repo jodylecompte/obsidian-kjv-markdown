@@ -1,0 +1,3 @@
+# Psalm 37:2
+
+For they shall soon be cut down like the grass, and wither as the green herb.

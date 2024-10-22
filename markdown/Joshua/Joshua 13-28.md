@@ -1,0 +1,3 @@
+# Joshua 13:28
+
+This [is] the inheritance of the children of Gad after their families, the cities, and their villages.

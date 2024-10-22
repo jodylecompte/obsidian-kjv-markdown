@@ -1,0 +1,3 @@
+# Mark 4:22
+
+For there is nothing hid, which shall not be manifested; neither was any thing kept secret, but that it should come abroad.

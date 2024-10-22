@@ -1,0 +1,3 @@
+# Proverbs 20:1
+
+Wine [is] a mocker, strong drink [is] raging: and whosoever is deceived thereby is not wise.

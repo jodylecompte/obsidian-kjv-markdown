@@ -1,0 +1,3 @@
+# Psalm 9:20
+
+Put them in fear, O LORD: [that] the nations may know themselves [to be but] men. Selah.

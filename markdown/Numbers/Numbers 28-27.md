@@ -1,0 +1,3 @@
+# Numbers 28:27
+
+But ye shall offer the burnt offering for a sweet savour unto the LORD; two young bullocks, one ram, seven lambs of the first year;

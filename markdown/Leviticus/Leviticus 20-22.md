@@ -1,0 +1,3 @@
+# Leviticus 20:22
+
+Ye shall therefore keep all my statutes, and all my judgments, and do them: that the land, whither I bring you to dwell therein, spue you not out.

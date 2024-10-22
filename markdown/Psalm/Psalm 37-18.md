@@ -1,0 +1,3 @@
+# Psalm 37:18
+
+The LORD knoweth the days of the upright: and their inheritance shall be for ever.

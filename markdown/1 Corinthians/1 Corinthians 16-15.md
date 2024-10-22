@@ -1,0 +1,3 @@
+# 1 Corinthians 16:15
+
+I beseech you, brethren, (ye know the house of Stephanas, that it is the firstfruits of Achaia, and [that] they have addicted themselves to the ministry of the saints,)

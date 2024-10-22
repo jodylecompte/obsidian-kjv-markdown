@@ -1,0 +1,3 @@
+# Psalm 72:18
+
+Blessed [be] the LORD God, the God of Israel, who only doeth wondrous things.

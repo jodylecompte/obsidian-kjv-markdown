@@ -1,0 +1,3 @@
+# Ezekiel 21:26
+
+Thus saith the Lord GOD; Remove the diadem, and take off the crown: this [shall] not [be] the same: exalt [him that is] low, and abase [him that is] high.

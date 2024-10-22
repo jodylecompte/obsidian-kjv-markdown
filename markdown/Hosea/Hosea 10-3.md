@@ -1,0 +1,3 @@
+# Hosea 10:3
+
+For now they shall say, We have no king, because we feared not the LORD; what then should a king do to us?

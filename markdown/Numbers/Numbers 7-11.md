@@ -1,0 +1,3 @@
+# Numbers 7:11
+
+And the LORD said unto Moses, They shall offer their offering, each prince on his day, for the dedicating of the altar.

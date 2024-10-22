@@ -1,0 +1,3 @@
+# Deuteronomy 33:26
+
+[There is] none like unto the God of Jeshurun, [who] rideth upon the heaven in thy help, and in his excellency on the sky.

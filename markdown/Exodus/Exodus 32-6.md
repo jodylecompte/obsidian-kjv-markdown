@@ -1,0 +1,3 @@
+# Exodus 32:6
+
+And they rose up early on the morrow, and offered burnt offerings, and brought peace offerings; and the people sat down to eat and to drink, and rose up to play.

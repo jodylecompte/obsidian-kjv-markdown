@@ -1,0 +1,3 @@
+# Psalm 75:6
+
+For promotion [cometh] neither from the east, nor from the west, nor from the south.

@@ -1,0 +1,3 @@
+# Isaiah 43:5
+
+Fear not: for I [am] with thee: I will bring thy seed from the east, and gather thee from the west;

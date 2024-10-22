@@ -1,0 +1,3 @@
+# 1 Chronicles 14:4
+
+Now these [are] the names of [his] children which he had in Jerusalem; Shammua, and Shobab, Nathan, and Solomon,

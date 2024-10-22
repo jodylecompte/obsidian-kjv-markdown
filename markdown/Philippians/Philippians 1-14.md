@@ -1,0 +1,3 @@
+# Philippians 1:14
+
+And many of the brethren in the Lord, waxing confident by my bonds, are much more bold to speak the word without fear.

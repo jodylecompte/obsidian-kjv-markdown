@@ -1,0 +1,3 @@
+# Acts 2:46
+
+And they, continuing daily with one accord in the temple, and breaking bread from house to house, did eat their meat with gladness and singleness of heart,

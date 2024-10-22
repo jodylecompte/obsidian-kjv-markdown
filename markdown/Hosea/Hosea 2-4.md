@@ -1,0 +1,3 @@
+# Hosea 2:4
+
+And I will not have mercy upon her children; for they [be] the children of whoredoms.

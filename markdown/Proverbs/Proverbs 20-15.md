@@ -1,0 +1,3 @@
+# Proverbs 20:15
+
+There is gold, and a multitude of rubies: but the lips of knowledge [are] a precious jewel.

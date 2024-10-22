@@ -1,0 +1,3 @@
+# Exodus 24:2
+
+And Moses alone shall come near the LORD: but they shall not come nigh; neither shall the people go up with him.

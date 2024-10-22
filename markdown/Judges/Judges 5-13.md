@@ -1,0 +1,3 @@
+# Judges 5:13
+
+Then he made him that remaineth have dominion over the nobles among the people: the LORD made me have dominion over the mighty.

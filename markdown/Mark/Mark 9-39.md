@@ -1,0 +1,3 @@
+# Mark 9:39
+
+But Jesus said, Forbid him not: for there is no man which shall do a miracle in my name, that can lightly speak evil of me.

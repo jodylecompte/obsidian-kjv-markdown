@@ -1,0 +1,3 @@
+# Jeremiah 27:19
+
+For thus saith the LORD of hosts concerning the pillars, and concerning the sea, and concerning the bases, and concerning the residue of the vessels that remain in this city,

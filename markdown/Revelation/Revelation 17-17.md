@@ -1,0 +1,3 @@
+# Revelation 17:17
+
+For God hath put in their hearts to fulfil his will, and to agree, and give their kingdom unto the beast, until the words of God shall be fulfilled.

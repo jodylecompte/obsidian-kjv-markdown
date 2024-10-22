@@ -1,0 +1,3 @@
+# 1 Thessalonians 1:5
+
+For our gospel came not unto you in word only, but also in power, and in the Holy Ghost, and in much assurance; as ye know what manner of men we were among you for your sake.

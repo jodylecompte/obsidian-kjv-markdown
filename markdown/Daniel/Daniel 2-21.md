@@ -1,0 +1,3 @@
+# Daniel 2:21
+
+And he changeth the times and the seasons: he removeth kings, and setteth up kings: he giveth wisdom unto the wise, and knowledge to them that know understanding:

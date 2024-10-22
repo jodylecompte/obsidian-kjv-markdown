@@ -1,0 +1,3 @@
+# Isaiah 42:12
+
+Let them give glory unto the LORD, and declare his praise in the islands.

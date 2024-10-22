@@ -1,0 +1,3 @@
+# Mark 7:24
+
+And from thence he arose, and went into the borders of Tyre and Sidon, and entered into an house, and would have no man know [it]: but he could not be hid.

@@ -1,0 +1,3 @@
+# Nehemiah 13:2
+
+Because they met not the children of Israel with bread and with water, but hired Balaam against them, that he should curse them: howbeit our God turned the curse into a blessing.

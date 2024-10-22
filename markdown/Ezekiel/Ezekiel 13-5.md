@@ -1,0 +1,3 @@
+# Ezekiel 13:5
+
+Ye have not gone up into the gaps, neither made up the hedge for the house of Israel to stand in the battle in the day of the LORD.

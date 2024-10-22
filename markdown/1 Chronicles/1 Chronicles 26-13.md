@@ -1,0 +1,3 @@
+# 1 Chronicles 26:13
+
+And they cast lots, as well the small as the great, according to the house of their fathers, for every gate.

@@ -1,0 +1,3 @@
+# Exodus 37:15
+
+And he made the staves [of] shittim wood, and overlaid them with gold, to bear the table.

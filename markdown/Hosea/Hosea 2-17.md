@@ -1,0 +1,3 @@
+# Hosea 2:17
+
+For I will take away the names of Baalim out of her mouth, and they shall no more be remembered by their name.

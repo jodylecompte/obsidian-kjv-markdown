@@ -1,0 +1,3 @@
+# 2 Samuel 2:3
+
+And his men that [were] with him did David bring up, every man with his household: and they dwelt in the cities of Hebron.

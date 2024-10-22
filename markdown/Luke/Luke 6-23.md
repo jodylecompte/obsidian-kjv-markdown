@@ -1,0 +1,3 @@
+# Luke 6:23
+
+Rejoice ye in that day, and leap for joy: for, behold, your reward [is] great in heaven: for in the like manner did their fathers unto the prophets.

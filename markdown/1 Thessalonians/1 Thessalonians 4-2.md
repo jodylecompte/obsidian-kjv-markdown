@@ -1,0 +1,3 @@
+# 1 Thessalonians 4:2
+
+For ye know what commandments we gave you by the Lord Jesus.

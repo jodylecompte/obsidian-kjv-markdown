@@ -1,0 +1,3 @@
+# Psalm 94:22
+
+But the LORD is my defence; and my God [is] the rock of my refuge.

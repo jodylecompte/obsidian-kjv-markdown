@@ -1,0 +1,3 @@
+# Genesis 46:7
+
+His sons, and his sons’ sons with him, his daughters, and his sons’ daughters, and all his seed brought he with him into Egypt.

@@ -1,0 +1,3 @@
+# Exodus 21:6
+
+Then his master shall bring him unto the judges; he shall also bring him to the door, or unto the door post; and his master shall bore his ear through with an aul; and he shall serve him for ever.

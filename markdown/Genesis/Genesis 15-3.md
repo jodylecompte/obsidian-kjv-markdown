@@ -1,0 +1,3 @@
+# Genesis 15:3
+
+And Abram said, Behold, to me thou hast given no seed: and, lo, one born in my house is mine heir.

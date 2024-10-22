@@ -1,0 +1,3 @@
+# Isaiah 28:17
+
+Judgment also will I lay to the line, and righteousness to the plummet: and the hail shall sweep away the refuge of lies, and the waters shall overflow the hiding place.

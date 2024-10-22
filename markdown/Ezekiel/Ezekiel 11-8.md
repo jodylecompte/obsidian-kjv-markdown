@@ -1,0 +1,3 @@
+# Ezekiel 11:8
+
+Ye have feared the sword; and I will bring a sword upon you, saith the Lord GOD.

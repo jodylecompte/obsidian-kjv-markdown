@@ -1,0 +1,3 @@
+# Daniel 2:31
+
+Thou, O king, sawest, and behold a great image. This great image, whose brightness [was] excellent, stood before thee; and the form thereof [was] terrible.

@@ -1,0 +1,3 @@
+# Psalm 127:2
+
+[It is] vain for you to rise up early, to sit up late, to eat the bread of sorrows: [for] so he giveth his beloved sleep.

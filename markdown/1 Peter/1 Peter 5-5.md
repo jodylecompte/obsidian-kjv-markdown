@@ -1,0 +1,3 @@
+# 1 Peter 5:5
+
+Likewise, ye younger, submit yourselves unto the elder. Yea, all [of you] be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.

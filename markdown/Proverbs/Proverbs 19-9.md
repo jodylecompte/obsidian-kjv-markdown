@@ -1,0 +1,3 @@
+# Proverbs 19:9
+
+A false witness shall not be unpunished, and [he that] speaketh lies shall perish.

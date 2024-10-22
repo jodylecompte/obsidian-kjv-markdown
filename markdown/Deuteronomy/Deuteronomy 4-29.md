@@ -1,0 +1,3 @@
+# Deuteronomy 4:29
+
+But if from thence thou shalt seek the LORD thy God, thou shalt find [him], if thou seek him with all thy heart and with all thy soul.

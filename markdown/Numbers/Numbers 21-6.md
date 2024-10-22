@@ -1,0 +1,3 @@
+# Numbers 21:6
+
+And the LORD sent fiery serpents among the people, and they bit the people; and much people of Israel died.

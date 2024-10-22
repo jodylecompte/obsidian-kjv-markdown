@@ -1,0 +1,3 @@
+# Genesis 15:7
+
+And he said unto him, I [am] the LORD that brought thee out of Ur of the Chaldees, to give thee this land to inherit it.

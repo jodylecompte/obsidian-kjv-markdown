@@ -1,0 +1,3 @@
+# Lamentations 5:6
+
+We have given the hand [to] the Egyptians, [and to] the Assyrians, to be satisfied with bread.

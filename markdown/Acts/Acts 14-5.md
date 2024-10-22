@@ -1,0 +1,3 @@
+# Acts 14:5
+
+And when there was an assault made both of the Gentiles, and also of the Jews with their rulers, to use [them] despitefully, and to stone them,

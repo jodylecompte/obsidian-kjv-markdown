@@ -1,0 +1,3 @@
+# Deuteronomy 3:5
+
+All these cities [were] fenced with high walls, gates, and bars; beside unwalled towns a great many.

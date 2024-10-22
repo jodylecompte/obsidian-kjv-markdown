@@ -1,0 +1,3 @@
+# Numbers 3:42
+
+And Moses numbered, as the LORD commanded him, all the firstborn among the children of Israel.

@@ -1,0 +1,3 @@
+# Ecclesiastes 8:4
+
+Where the word of a king [is, there is] power: and who may say unto him, What doest thou?

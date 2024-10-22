@@ -1,0 +1,3 @@
+# 1 Kings 6:2
+
+And the house which king Solomon built for the LORD, the length thereof [was] threescore cubits, and the breadth thereof twenty [cubits], and the height thereof thirty cubits.

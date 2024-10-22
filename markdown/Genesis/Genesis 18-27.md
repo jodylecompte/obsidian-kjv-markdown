@@ -1,0 +1,3 @@
+# Genesis 18:27
+
+And Abraham answered and said, Behold now, I have taken upon me to speak unto the Lord, which [am but] dust and ashes:

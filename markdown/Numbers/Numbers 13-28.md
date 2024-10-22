@@ -1,0 +1,3 @@
+# Numbers 13:28
+
+Nevertheless the people [be] strong that dwell in the land, and the cities [are] walled, [and] very great: and moreover we saw the children of Anak there.

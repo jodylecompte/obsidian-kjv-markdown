@@ -1,0 +1,3 @@
+# Jeremiah 10:18
+
+For thus saith the LORD, Behold, I will sling out the inhabitants of the land at this once, and will distress them, that they may find [it so].

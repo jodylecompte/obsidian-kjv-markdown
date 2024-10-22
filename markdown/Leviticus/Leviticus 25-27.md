@@ -1,0 +1,3 @@
+# Leviticus 25:27
+
+Then let him count the years of the sale thereof, and restore the overplus unto the man to whom he sold it; that he may return unto his possession.

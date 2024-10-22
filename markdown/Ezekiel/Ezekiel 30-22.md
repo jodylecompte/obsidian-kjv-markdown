@@ -1,0 +1,3 @@
+# Ezekiel 30:22
+
+Therefore thus saith the Lord GOD; Behold, I [am] against Pharaoh king of Egypt, and will break his arms, the strong, and that which was broken; and I will cause the sword to fall out of his hand.

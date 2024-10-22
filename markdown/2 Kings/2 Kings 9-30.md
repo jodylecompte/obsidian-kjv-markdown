@@ -1,0 +1,3 @@
+# 2 Kings 9:30
+
+And when Jehu was come to Jezreel, Jezebel heard [of it]; and she painted her face, and tired her head, and looked out at a window.

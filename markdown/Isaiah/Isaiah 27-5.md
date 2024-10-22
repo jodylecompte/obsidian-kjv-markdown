@@ -1,0 +1,3 @@
+# Isaiah 27:5
+
+Or let him take hold of my strength, [that] he may make peace with me; [and] he shall make peace with me.

@@ -1,0 +1,3 @@
+# Mark 4:15
+
+And these are they by the way side, where the word is sown; but when they have heard, Satan cometh immediately, and taketh away the word that was sown in their hearts.

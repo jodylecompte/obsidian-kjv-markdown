@@ -1,0 +1,3 @@
+# Proverbs 12:28
+
+In the way of righteousness [is] life; and [in] the pathway [thereof there is] no death.

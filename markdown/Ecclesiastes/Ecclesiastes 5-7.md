@@ -1,0 +1,3 @@
+# Ecclesiastes 5:7
+
+For in the multitude of dreams and many words [there are] also [divers] vanities: but fear thou God.

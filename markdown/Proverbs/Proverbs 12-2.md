@@ -1,0 +1,3 @@
+# Proverbs 12:2
+
+A good [man] obtaineth favour of the LORD: but a man of wicked devices will he condemn.

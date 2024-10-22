@@ -1,0 +1,3 @@
+# 1 Corinthians 10:18
+
+Behold Israel after the flesh: are not they which eat of the sacrifices partakers of the altar?

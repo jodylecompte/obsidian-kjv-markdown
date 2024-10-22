@@ -1,0 +1,3 @@
+# Psalm 53:2
+
+God looked down from heaven upon the children of men, to see if there were [any] that did understand, that did seek God.

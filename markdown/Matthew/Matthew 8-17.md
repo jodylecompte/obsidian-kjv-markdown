@@ -1,0 +1,3 @@
+# Matthew 8:17
+
+That it might be fulfilled which was spoken by Esaias the prophet, saying, Himself took our infirmities, and bare [our] sicknesses.

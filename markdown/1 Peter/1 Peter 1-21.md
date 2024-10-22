@@ -1,0 +1,3 @@
+# 1 Peter 1:21
+
+Who by him do believe in God, that raised him up from the dead, and gave him glory; that your faith and hope might be in God.

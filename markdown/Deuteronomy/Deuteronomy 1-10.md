@@ -1,0 +1,3 @@
+# Deuteronomy 1:10
+
+The LORD your God hath multiplied you, and, behold, ye [are] this day as the stars of heaven for multitude.

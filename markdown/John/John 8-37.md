@@ -1,0 +1,3 @@
+# John 8:37
+
+I know that ye are Abraham’s seed; but ye seek to kill me, because my word hath no place in you.

@@ -1,0 +1,3 @@
+# Revelation 9:10
+
+And they had tails like unto scorpions, and there were stings in their tails: and their power [was] to hurt men five months.

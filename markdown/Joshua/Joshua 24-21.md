@@ -1,0 +1,3 @@
+# Joshua 24:21
+
+And the people said unto Joshua, Nay; but we will serve the LORD.

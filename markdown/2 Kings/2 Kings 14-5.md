@@ -1,0 +1,3 @@
+# 2 Kings 14:5
+
+And it came to pass, as soon as the kingdom was confirmed in his hand, that he slew his servants which had slain the king his father.

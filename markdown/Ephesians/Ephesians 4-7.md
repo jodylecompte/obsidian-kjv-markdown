@@ -1,0 +1,3 @@
+# Ephesians 4:7
+
+But unto every one of us is given grace according to the measure of the gift of Christ.

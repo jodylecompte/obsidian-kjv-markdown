@@ -1,0 +1,3 @@
+# Jeremiah 4:6
+
+Set up the standard toward Zion: retire, stay not: for I will bring evil from the north, and a great destruction.

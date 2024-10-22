@@ -1,0 +1,3 @@
+# Psalm 115:5
+
+They have mouths, but they speak not: eyes have they, but they see not:

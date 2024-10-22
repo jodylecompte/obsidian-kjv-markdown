@@ -1,0 +1,3 @@
+# Isaiah 47:5
+
+Sit thou silent, and get thee into darkness, O daughter of the Chaldeans: for thou shalt no more be called, The lady of kingdoms.

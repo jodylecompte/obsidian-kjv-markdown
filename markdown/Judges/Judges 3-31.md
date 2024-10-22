@@ -1,0 +1,3 @@
+# Judges 3:31
+
+And after him was Shamgar the son of Anath, which slew of the Philistines six hundred men with an ox goad: and he also delivered Israel.

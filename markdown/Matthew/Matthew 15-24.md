@@ -1,0 +1,3 @@
+# Matthew 15:24
+
+But he answered and said, I am not sent but unto the lost sheep of the house of Israel.

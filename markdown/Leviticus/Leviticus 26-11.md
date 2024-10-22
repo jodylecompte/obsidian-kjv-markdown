@@ -1,0 +1,3 @@
+# Leviticus 26:11
+
+And I will set my tabernacle among you: and my soul shall not abhor you.

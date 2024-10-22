@@ -1,0 +1,3 @@
+# James 4:2
+
+Ye lust, and have not: ye kill, and desire to have, and cannot obtain: ye fight and war, yet ye have not, because ye ask not.

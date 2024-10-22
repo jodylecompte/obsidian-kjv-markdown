@@ -1,0 +1,3 @@
+# Jeremiah 17:23
+
+But they obeyed not, neither inclined their ear, but made their neck stiff, that they might not hear, nor receive instruction.

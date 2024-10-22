@@ -1,0 +1,3 @@
+# John 9:41
+
+Jesus said unto them, If ye were blind, ye should have no sin: but now ye say, We see; therefore your sin remaineth.

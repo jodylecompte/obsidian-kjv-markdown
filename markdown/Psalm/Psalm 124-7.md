@@ -1,0 +1,3 @@
+# Psalm 124:7
+
+Our soul is escaped as a bird out of the snare of the fowlers: the snare is broken, and we are escaped.

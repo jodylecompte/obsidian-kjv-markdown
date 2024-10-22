@@ -1,0 +1,3 @@
+# 1 Kings 8:41
+
+Moreover concerning a stranger, that [is] not of thy people Israel, but cometh out of a far country for thy name’s sake;

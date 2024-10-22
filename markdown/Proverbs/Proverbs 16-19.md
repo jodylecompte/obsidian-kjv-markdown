@@ -1,0 +1,3 @@
+# Proverbs 16:19
+
+Better [it is to be] of an humble spirit with the lowly, than to divide the spoil with the proud.

@@ -1,0 +1,3 @@
+# 1 Thessalonians 5:2
+
+For yourselves know perfectly that the day of the Lord so cometh as a thief in the night.

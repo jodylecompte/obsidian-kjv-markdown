@@ -1,0 +1,3 @@
+# Leviticus 27:21
+
+But the field, when it goeth out in the jubile, shall be holy unto the LORD, as a field devoted; the possession thereof shall be the priest’s.

@@ -1,0 +1,3 @@
+# 1 Chronicles 9:14
+
+And of the Levites; Shemaiah the son of Hasshub, the son of Azrikam, the son of Hashabiah, of the sons of Merari;

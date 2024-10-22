@@ -1,0 +1,3 @@
+# Joshua 14:8
+
+Nevertheless my brethren that went up with me made the heart of the people melt: but I wholly followed the LORD my God.

@@ -1,0 +1,3 @@
+# Leviticus 25:39
+
+And if thy brother [that dwelleth] by thee be waxen poor, and be sold unto thee; thou shalt not compel him to serve as a bondservant:

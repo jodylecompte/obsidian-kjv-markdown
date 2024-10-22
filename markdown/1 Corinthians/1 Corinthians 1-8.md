@@ -1,0 +1,3 @@
+# 1 Corinthians 1:8
+
+Who shall also confirm you unto the end, [that ye may be] blameless in the day of our Lord Jesus Christ.

@@ -1,0 +1,3 @@
+# Isaiah 65:23
+
+They shall not labour in vain, nor bring forth for trouble; for they [are] the seed of the blessed of the LORD, and their offspring with them.

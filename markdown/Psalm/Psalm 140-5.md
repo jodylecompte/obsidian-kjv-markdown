@@ -1,0 +1,3 @@
+# Psalm 140:5
+
+The proud have hid a snare for me, and cords; they have spread a net by the wayside; they have set gins for me. Selah.

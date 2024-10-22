@@ -1,0 +1,3 @@
+# 1 Samuel 15:24
+
+And Saul said unto Samuel, I have sinned: for I have transgressed the commandment of the LORD, and thy words: because I feared the people, and obeyed their voice.

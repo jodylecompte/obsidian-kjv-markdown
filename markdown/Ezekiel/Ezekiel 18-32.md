@@ -1,0 +1,3 @@
+# Ezekiel 18:32
+
+For I have no pleasure in the death of him that dieth, saith the Lord GOD: wherefore turn [yourselves], and live ye.

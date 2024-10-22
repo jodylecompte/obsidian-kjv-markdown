@@ -1,0 +1,3 @@
+# Micah 7:20
+
+Thou wilt perform the truth to Jacob, [and] the mercy to Abraham, which thou hast sworn unto our fathers from the days of old.

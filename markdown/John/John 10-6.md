@@ -1,0 +1,3 @@
+# John 10:6
+
+This parable spake Jesus unto them: but they understood not what things they were which he spake unto them.

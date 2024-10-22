@@ -1,0 +1,3 @@
+# Proverbs 10:13
+
+In the lips of him that hath understanding wisdom is found: but a rod [is] for the back of him that is void of understanding.

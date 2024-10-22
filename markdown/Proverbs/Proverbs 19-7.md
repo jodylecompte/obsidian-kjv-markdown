@@ -1,0 +1,3 @@
+# Proverbs 19:7
+
+All the brethren of the poor do hate him: how much more do his friends go far from him? he pursueth [them with] words, [yet] they [are] wanting [to him].

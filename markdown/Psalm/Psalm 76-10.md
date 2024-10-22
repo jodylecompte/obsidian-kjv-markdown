@@ -1,0 +1,3 @@
+# Psalm 76:10
+
+Surely the wrath of man shall praise thee: the remainder of wrath shalt thou restrain.

@@ -1,0 +1,3 @@
+# Exodus 21:12
+
+He that smiteth a man, so that he die, shall be surely put to death.

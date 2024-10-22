@@ -1,0 +1,3 @@
+# Judges 5:19
+
+The kings came [and] fought, then fought the kings of Canaan in Taanach by the waters of Megiddo; they took no gain of money.

@@ -1,0 +1,3 @@
+# Exodus 22:21
+
+Thou shalt neither vex a stranger, nor oppress him: for ye were strangers in the land of Egypt.

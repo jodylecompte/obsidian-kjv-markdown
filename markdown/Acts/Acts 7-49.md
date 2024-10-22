@@ -1,0 +1,3 @@
+# Acts 7:49
+
+Heaven [is] my throne, and earth [is] my footstool: what house will ye build me? saith the Lord: or what [is] the place of my rest?

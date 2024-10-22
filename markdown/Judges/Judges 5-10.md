@@ -1,0 +1,3 @@
+# Judges 5:10
+
+Speak, ye that ride on white asses, ye that sit in judgment, and walk by the way.

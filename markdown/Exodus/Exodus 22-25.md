@@ -1,0 +1,3 @@
+# Exodus 22:25
+
+If thou lend money to [any of] my people [that is] poor by thee, thou shalt not be to him as an usurer, neither shalt thou lay upon him usury.

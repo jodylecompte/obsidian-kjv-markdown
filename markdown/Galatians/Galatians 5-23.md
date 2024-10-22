@@ -1,0 +1,3 @@
+# Galatians 5:23
+
+Meekness, temperance: against such there is no law.

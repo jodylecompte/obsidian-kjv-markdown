@@ -1,0 +1,3 @@
+# Mark 2:27
+
+And he said unto them, The sabbath was made for man, and not man for the sabbath:

@@ -1,0 +1,3 @@
+# Exodus 39:39
+
+The brasen altar, and his grate of brass, his staves, and all his vessels, the laver and his foot,

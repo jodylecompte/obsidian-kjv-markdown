@@ -1,0 +1,3 @@
+# Numbers 27:20
+
+And thou shalt put [some] of thine honour upon him, that all the congregation of the children of Israel may be obedient.

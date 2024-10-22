@@ -1,0 +1,3 @@
+# 1 Corinthians 10:1
+
+Moreover, brethren, I would not that ye should be ignorant, how that all our fathers were under the cloud, and all passed through the sea;

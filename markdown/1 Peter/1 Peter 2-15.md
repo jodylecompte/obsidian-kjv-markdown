@@ -1,0 +1,3 @@
+# 1 Peter 2:15
+
+For so is the will of God, that with well doing ye may put to silence the ignorance of foolish men:

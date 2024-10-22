@@ -1,0 +1,3 @@
+# 1 Kings 9:15
+
+And this [is] the reason of the levy which king Solomon raised; for to build the house of the LORD, and his own house, and Millo, and the wall of Jerusalem, and Hazor, and Megiddo, and Gezer.

@@ -1,0 +1,3 @@
+# Zephaniah 1:7
+
+Hold thy peace at the presence of the Lord GOD: for the day of the LORD [is] at hand: for the LORD hath prepared a sacrifice, he hath bid his guests.

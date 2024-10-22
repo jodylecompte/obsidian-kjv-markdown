@@ -1,0 +1,3 @@
+# Deuteronomy 10:14
+
+Behold, the heaven and the heaven of heavens [is] the LORD’S thy God, the earth [also], with all that therein [is].

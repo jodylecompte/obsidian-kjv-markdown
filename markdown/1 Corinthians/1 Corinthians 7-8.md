@@ -1,0 +1,3 @@
+# 1 Corinthians 7:8
+
+I say therefore to the unmarried and widows, It is good for them if they abide even as I.

@@ -1,0 +1,3 @@
+# 1 Chronicles 6:37
+
+The son of Tahath, the son of Assir, the son of Ebiasaph, the son of Korah,

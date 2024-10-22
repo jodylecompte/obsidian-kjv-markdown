@@ -1,0 +1,3 @@
+# Deuteronomy 23:1
+
+He that is wounded in the stones, or hath his privy member cut off, shall not enter into the congregation of the LORD.

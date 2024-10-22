@@ -1,0 +1,3 @@
+# Luke 9:23
+
+And he said to [them] all, If any [man] will come after me, let him deny himself, and take up his cross daily, and follow me.

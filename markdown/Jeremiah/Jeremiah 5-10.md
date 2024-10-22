@@ -1,0 +1,3 @@
+# Jeremiah 5:10
+
+Go ye up upon her walls, and destroy; but make not a full end: take away her battlements; for they [are] not the LORD’S.

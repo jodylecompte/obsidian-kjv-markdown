@@ -1,0 +1,3 @@
+# Acts 5:25
+
+Then came one and told them, saying, Behold, the men whom ye put in prison are standing in the temple, and teaching the people.

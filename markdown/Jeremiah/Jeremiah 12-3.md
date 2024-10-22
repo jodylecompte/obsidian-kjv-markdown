@@ -1,0 +1,3 @@
+# Jeremiah 12:3
+
+But thou, O LORD, knowest me: thou hast seen me, and tried mine heart toward thee: pull them out like sheep for the slaughter, and prepare them for the day of slaughter.

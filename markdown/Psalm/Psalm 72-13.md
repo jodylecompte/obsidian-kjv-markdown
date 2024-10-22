@@ -1,0 +1,3 @@
+# Psalm 72:13
+
+He shall spare the poor and needy, and shall save the souls of the needy.

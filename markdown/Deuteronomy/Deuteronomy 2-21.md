@@ -1,0 +1,3 @@
+# Deuteronomy 2:21
+
+A people great, and many, and tall, as the Anakims; but the LORD destroyed them before them; and they succeeded them, and dwelt in their stead:

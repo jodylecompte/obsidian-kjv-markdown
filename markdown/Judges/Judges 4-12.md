@@ -1,0 +1,3 @@
+# Judges 4:12
+
+And they shewed Sisera that Barak the son of Abinoam was gone up to mount Tabor.

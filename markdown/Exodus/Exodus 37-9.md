@@ -1,0 +1,3 @@
+# Exodus 37:9
+
+And the cherubims spread out [their] wings on high, [and] covered with their wings over the mercy seat, with their faces one to another; [even] to the mercy seatward were the faces of the cherubims.

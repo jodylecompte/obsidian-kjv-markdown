@@ -1,0 +1,3 @@
+# Deuteronomy 5:25
+
+Now therefore why should we die? for this great fire will consume us: if we hear the voice of the LORD our God any more, then we shall die.

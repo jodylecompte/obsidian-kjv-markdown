@@ -1,0 +1,3 @@
+# Acts 2:15
+
+For these are not drunken, as ye suppose, seeing it is [but] the third hour of the day.

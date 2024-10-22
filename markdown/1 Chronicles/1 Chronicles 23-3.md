@@ -1,0 +1,3 @@
+# 1 Chronicles 23:3
+
+Now the Levites were numbered from the age of thirty years and upward: and their number by their polls, man by man, was thirty and eight thousand.

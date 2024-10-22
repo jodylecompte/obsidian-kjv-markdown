@@ -1,0 +1,3 @@
+# Daniel 7:10
+
+A fiery stream issued and came forth from before him: thousand thousands ministered unto him, and ten thousand times ten thousand stood before him: the judgment was set, and the books were opened.

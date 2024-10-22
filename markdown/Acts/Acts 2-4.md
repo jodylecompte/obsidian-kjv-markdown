@@ -1,0 +1,3 @@
+# Acts 2:4
+
+And they were all filled with the Holy Ghost, and began to speak with other tongues, as the Spirit gave them utterance.

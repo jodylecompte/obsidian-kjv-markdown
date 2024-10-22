@@ -1,0 +1,3 @@
+# Numbers 4:46
+
+All those that were numbered of the Levites, whom Moses and Aaron and the chief of Israel numbered, after their families, and after the house of their fathers,

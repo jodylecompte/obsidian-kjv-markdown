@@ -1,0 +1,3 @@
+# John 6:53
+
+Then Jesus said unto them, Verily, verily, I say unto you, Except ye eat the flesh of the Son of man, and drink his blood, ye have no life in you.

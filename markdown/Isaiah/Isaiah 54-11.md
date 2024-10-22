@@ -1,0 +1,3 @@
+# Isaiah 54:11
+
+O thou afflicted, tossed with tempest, [and] not comforted, behold, I will lay thy stones with fair colours, and lay thy foundations with sapphires.

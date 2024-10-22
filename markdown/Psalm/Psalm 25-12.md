@@ -1,0 +1,3 @@
+# Psalm 25:12
+
+What man [is] he that feareth the LORD? him shall he teach in the way [that] he shall choose.

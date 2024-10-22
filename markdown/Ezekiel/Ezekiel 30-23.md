@@ -1,0 +1,3 @@
+# Ezekiel 30:23
+
+And I will scatter the Egyptians among the nations, and will disperse them through the countries.

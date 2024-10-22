@@ -1,0 +1,3 @@
+# Genesis 49:3
+
+Reuben, thou [art] my firstborn, my might, and the beginning of my strength, the excellency of dignity, and the excellency of power:

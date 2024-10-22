@@ -1,0 +1,3 @@
+# Proverbs 22:16
+
+He that oppresseth the poor to increase his [riches, and] he that giveth to the rich, [shall] surely [come] to want.

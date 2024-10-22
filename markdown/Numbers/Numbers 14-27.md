@@ -1,0 +1,3 @@
+# Numbers 14:27
+
+How long [shall I bear with] this evil congregation, which murmur against me? I have heard the murmurings of the children of Israel, which they murmur against me.

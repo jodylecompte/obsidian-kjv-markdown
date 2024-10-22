@@ -1,0 +1,3 @@
+# Numbers 7:10
+
+And the princes offered for dedicating of the altar in the day that it was anointed, even the princes offered their offering before the altar.

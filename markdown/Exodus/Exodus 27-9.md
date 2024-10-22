@@ -1,0 +1,3 @@
+# Exodus 27:9
+
+And thou shalt make the court of the tabernacle: for the south side southward [there shall be] hangings for the court [of] fine twined linen of an hundred cubits long for one side:

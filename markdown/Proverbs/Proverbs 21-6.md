@@ -1,0 +1,3 @@
+# Proverbs 21:6
+
+The getting of treasures by a lying tongue [is] a vanity tossed to and fro of them that seek death.

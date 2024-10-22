@@ -1,0 +1,3 @@
+# Numbers 9:8
+
+And Moses said unto them, Stand still, and I will hear what the LORD will command concerning you.

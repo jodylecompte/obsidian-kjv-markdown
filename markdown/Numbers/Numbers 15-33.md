@@ -1,0 +1,3 @@
+# Numbers 15:33
+
+And they that found him gathering sticks brought him unto Moses and Aaron, and unto all the congregation.

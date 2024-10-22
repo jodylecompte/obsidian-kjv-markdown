@@ -1,0 +1,3 @@
+# Numbers 14:25
+
+(Now the Amalekites and the Canaanites dwelt in the valley.) To morrow turn you, and get you into the wilderness by the way of the Red sea.

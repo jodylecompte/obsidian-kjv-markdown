@@ -1,0 +1,3 @@
+# Luke 5:30
+
+But their scribes and Pharisees murmured against his disciples, saying, Why do ye eat and drink with publicans and sinners?

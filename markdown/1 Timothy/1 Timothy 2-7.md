@@ -1,0 +1,3 @@
+# 1 Timothy 2:7
+
+Whereunto I am ordained a preacher, and an apostle, (I speak the truth in Christ, [and] lie not;) a teacher of the Gentiles in faith and verity.

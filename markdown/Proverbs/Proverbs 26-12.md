@@ -1,0 +1,3 @@
+# Proverbs 26:12
+
+Seest thou a man wise in his own conceit? [there is] more hope of a fool than of him.

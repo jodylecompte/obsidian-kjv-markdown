@@ -1,0 +1,3 @@
+# Proverbs 28:25
+
+He that is of a proud heart stirreth up strife: but he that putteth his trust in the LORD shall be made fat.

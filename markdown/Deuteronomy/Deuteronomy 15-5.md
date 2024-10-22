@@ -1,0 +1,3 @@
+# Deuteronomy 15:5
+
+Only if thou carefully hearken unto the voice of the LORD thy God, to observe to do all these commandments which I command thee this day.

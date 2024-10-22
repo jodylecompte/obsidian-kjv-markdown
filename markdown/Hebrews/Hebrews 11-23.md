@@ -1,0 +1,3 @@
+# Hebrews 11:23
+
+By faith Moses, when he was born, was hid three months of his parents, because they saw [he was] a proper child; and they were not afraid of the king’s commandment.

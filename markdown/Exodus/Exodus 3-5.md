@@ -1,0 +1,3 @@
+# Exodus 3:5
+
+And he said, Draw not nigh hither: put off thy shoes from off thy feet, for the place whereon thou standest [is] holy ground.

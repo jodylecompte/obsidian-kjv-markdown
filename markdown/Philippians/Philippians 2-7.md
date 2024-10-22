@@ -1,0 +1,3 @@
+# Philippians 2:7
+
+But made himself of no reputation, and took upon him the form of a servant, and was made in the likeness of men:

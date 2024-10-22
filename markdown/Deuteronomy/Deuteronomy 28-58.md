@@ -1,0 +1,3 @@
+# Deuteronomy 28:58
+
+If thou wilt not observe to do all the words of this law that are written in this book, that thou mayest fear this glorious and fearful name, THE LORD THY GOD;

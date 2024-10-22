@@ -1,0 +1,3 @@
+# Genesis 22:20
+
+And it came to pass after these things, that it was told Abraham, saying, Behold, Milcah, she hath also born children unto thy brother Nahor;

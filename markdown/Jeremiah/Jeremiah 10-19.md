@@ -1,0 +1,3 @@
+# Jeremiah 10:19
+
+Woe is me for my hurt! my wound is grievous: but I said, Truly this [is] a grief, and I must bear it.

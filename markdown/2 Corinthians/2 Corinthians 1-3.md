@@ -1,0 +1,3 @@
+# 2 Corinthians 1:3
+
+Blessed [be] God, even the Father of our Lord Jesus Christ, the Father of mercies, and the God of all comfort;

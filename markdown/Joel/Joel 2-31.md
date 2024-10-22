@@ -1,0 +1,3 @@
+# Joel 2:31
+
+The sun shall be turned into darkness, and the moon into blood, before the great and the terrible day of the LORD come.

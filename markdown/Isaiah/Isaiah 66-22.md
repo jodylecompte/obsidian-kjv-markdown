@@ -1,0 +1,3 @@
+# Isaiah 66:22
+
+For as the new heavens and the new earth, which I will make, shall remain before me, saith the LORD, so shall your seed and your name remain.

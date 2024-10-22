@@ -1,0 +1,3 @@
+# Joshua 3:7
+
+And the LORD said unto Joshua, This day will I begin to magnify thee in the sight of all Israel, that they may know that, as I was with Moses, [so] I will be with thee.

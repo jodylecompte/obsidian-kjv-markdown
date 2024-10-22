@@ -1,0 +1,3 @@
+# Judges 11:34
+
+And Jephthah came to Mizpeh unto his house, and, behold, his daughter came out to meet him with timbrels and with dances: and she [was his] only child; beside her he had neither son nor daughter.

@@ -1,0 +1,3 @@
+# Deuteronomy 27:8
+
+And thou shalt write upon the stones all the words of this law very plainly.

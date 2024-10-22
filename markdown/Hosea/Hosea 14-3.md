@@ -1,0 +1,3 @@
+# Hosea 14:3
+
+Asshur shall not save us; we will not ride upon horses: neither will we say any more to the work of our hands, [Ye are] our gods: for in thee the fatherless findeth mercy.

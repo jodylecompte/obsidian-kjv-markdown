@@ -1,0 +1,3 @@
+# 2 Samuel 7:1
+
+And it came to pass, when the king sat in his house, and the LORD had given him rest round about from all his enemies;

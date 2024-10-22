@@ -1,0 +1,3 @@
+# 2 Samuel 7:18
+
+Then went king David in, and sat before the LORD, and he said, Who [am] I, O Lord GOD? and what [is] my house, that thou hast brought me hitherto?

@@ -1,0 +1,3 @@
+# Psalm 92:12
+
+The righteous shall flourish like the palm tree: he shall grow like a cedar in Lebanon.

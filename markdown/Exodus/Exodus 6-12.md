@@ -1,0 +1,3 @@
+# Exodus 6:12
+
+And Moses spake before the LORD, saying, Behold, the children of Israel have not hearkened unto me; how then shall Pharaoh hear me, who [am] of uncircumcised lips?

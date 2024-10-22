@@ -1,0 +1,3 @@
+# Genesis 42:1
+
+Now when Jacob saw that there was corn in Egypt, Jacob said unto his sons, Why do ye look one upon another?

@@ -1,0 +1,3 @@
+# Jeremiah 40:3
+
+Now the LORD hath brought [it], and done according as he hath said: because ye have sinned against the LORD, and have not obeyed his voice, therefore this thing is come upon you.

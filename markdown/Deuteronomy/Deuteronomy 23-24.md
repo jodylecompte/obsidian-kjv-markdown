@@ -1,0 +1,3 @@
+# Deuteronomy 23:24
+
+When thou comest into thy neighbour’s vineyard, then thou mayest eat grapes thy fill at thine own pleasure; but thou shalt not put [any] in thy vessel.

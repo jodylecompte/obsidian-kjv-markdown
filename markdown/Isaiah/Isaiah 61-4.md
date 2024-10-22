@@ -1,0 +1,3 @@
+# Isaiah 61:4
+
+And they shall build the old wastes, they shall raise up the former desolations, and they shall repair the waste cities, the desolations of many generations.

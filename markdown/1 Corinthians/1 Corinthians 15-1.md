@@ -1,0 +1,3 @@
+# 1 Corinthians 15:1
+
+Moreover, brethren, I declare unto you the gospel which I preached unto you, which also ye have received, and wherein ye stand;

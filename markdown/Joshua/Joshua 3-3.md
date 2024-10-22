@@ -1,0 +1,3 @@
+# Joshua 3:3
+
+And they commanded the people, saying, When ye see the ark of the covenant of the LORD your God, and the priests the Levites bearing it, then ye shall remove from your place, and go after it.

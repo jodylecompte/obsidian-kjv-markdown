@@ -1,0 +1,3 @@
+# 2 Chronicles 18:10
+
+And Zedekiah the son of Chenaanah had made him horns of iron, and said, Thus saith the LORD, With these thou shalt push Syria until they be consumed.

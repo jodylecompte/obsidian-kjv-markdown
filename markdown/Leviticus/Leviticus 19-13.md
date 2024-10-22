@@ -1,0 +1,3 @@
+# Leviticus 19:13
+
+Thou shalt not defraud thy neighbour, neither rob [him]: the wages of him that is hired shall not abide with thee all night until the morning.

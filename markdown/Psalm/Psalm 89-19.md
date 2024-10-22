@@ -1,0 +1,3 @@
+# Psalm 89:19
+
+Then thou spakest in vision to thy holy one, and saidst, I have laid help upon [one that is] mighty; I have exalted [one] chosen out of the people.

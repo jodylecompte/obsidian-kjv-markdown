@@ -1,0 +1,3 @@
+# Luke 16:8
+
+And the lord commended the unjust steward, because he had done wisely: for the children of this world are in their generation wiser than the children of light.

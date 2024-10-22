@@ -1,0 +1,3 @@
+# Deuteronomy 4:28
+
+And there ye shall serve gods, the work of men’s hands, wood and stone, which neither see, nor hear, nor eat, nor smell.

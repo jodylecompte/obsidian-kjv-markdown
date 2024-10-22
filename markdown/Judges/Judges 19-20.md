@@ -1,0 +1,3 @@
+# Judges 19:20
+
+And the old man said, Peace [be] with thee; howsoever [let] all thy wants [lie] upon me; only lodge not in the street.

@@ -1,0 +1,3 @@
+# Isaiah 28:9
+
+Whom shall he teach knowledge? and whom shall he make to understand doctrine? [them that are] weaned from the milk, [and] drawn from the breasts.

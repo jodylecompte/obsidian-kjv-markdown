@@ -1,0 +1,3 @@
+# Acts 12:3
+
+And because he saw it pleased the Jews, he proceeded further to take Peter also. (Then were the days of unleavened bread.)

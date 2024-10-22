@@ -1,0 +1,3 @@
+# Psalm 12:3
+
+The LORD shall cut off all flattering lips, [and] the tongue that speaketh proud things:

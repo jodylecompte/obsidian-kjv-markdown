@@ -1,0 +1,3 @@
+# Daniel 10:7
+
+And I Daniel alone saw the vision: for the men that were with me saw not the vision; but a great quaking fell upon them, so that they fled to hide themselves.

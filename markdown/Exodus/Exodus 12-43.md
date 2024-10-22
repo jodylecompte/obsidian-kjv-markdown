@@ -1,0 +1,3 @@
+# Exodus 12:43
+
+And the LORD said unto Moses and Aaron, This [is] the ordinance of the passover: There shall no stranger eat thereof:

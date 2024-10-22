@@ -1,0 +1,3 @@
+# 2 Samuel 21:19
+
+And there was again a battle in Gob with the Philistines, where Elhanan the son of Jaareoregim, a Bethlehemite, slew [the brother of] Goliath the Gittite, the staff of whose spear [was] like a weaver’s beam.

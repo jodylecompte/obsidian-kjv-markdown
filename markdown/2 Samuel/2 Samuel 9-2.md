@@ -1,0 +1,3 @@
+# 2 Samuel 9:2
+
+And [there was] of the house of Saul a servant whose name [was] Ziba. And when they had called him unto David, the king said unto him, [Art] thou Ziba? And he said, Thy servant [is he].

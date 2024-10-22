@@ -1,0 +1,3 @@
+# Esther 8:14
+
+[So] the posts that rode upon mules [and] camels went out, being hastened and pressed on by the king’s commandment. And the decree was given at Shushan the palace.

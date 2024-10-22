@@ -1,0 +1,3 @@
+# Matthew 19:3
+
+The Pharisees also came unto him, tempting him, and saying unto him, Is it lawful for a man to put away his wife for every cause?

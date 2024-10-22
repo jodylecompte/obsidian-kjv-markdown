@@ -1,0 +1,3 @@
+# Deuteronomy 18:5
+
+For the LORD thy God hath chosen him out of all thy tribes, to stand to minister in the name of the LORD, him and his sons for ever.

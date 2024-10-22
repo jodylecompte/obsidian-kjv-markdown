@@ -1,0 +1,3 @@
+# Ezekiel 40:24
+
+After that he brought me toward the south, and behold a gate toward the south: and he measured the posts thereof and the arches thereof according to these measures.

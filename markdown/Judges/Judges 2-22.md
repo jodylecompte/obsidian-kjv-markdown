@@ -1,0 +1,3 @@
+# Judges 2:22
+
+That through them I may prove Israel, whether they will keep the way of the LORD to walk therein, as their fathers did keep [it], or not.

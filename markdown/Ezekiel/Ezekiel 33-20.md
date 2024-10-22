@@ -1,0 +1,3 @@
+# Ezekiel 33:20
+
+Yet ye say, The way of the Lord is not equal. O ye house of Israel, I will judge you every one after his ways.

@@ -1,0 +1,3 @@
+# John 10:4
+
+And when he putteth forth his own sheep, he goeth before them, and the sheep follow him: for they know his voice.

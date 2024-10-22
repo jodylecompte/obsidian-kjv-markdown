@@ -1,0 +1,3 @@
+# Judges 6:14
+
+And the LORD looked upon him, and said, Go in this thy might, and thou shalt save Israel from the hand of the Midianites: have not I sent thee?

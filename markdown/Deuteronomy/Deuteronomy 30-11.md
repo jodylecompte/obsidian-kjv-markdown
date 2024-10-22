@@ -1,0 +1,3 @@
+# Deuteronomy 30:11
+
+For this commandment which I command thee this day, it [is] not hidden from thee, neither [is] it far off.

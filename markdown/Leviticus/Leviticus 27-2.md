@@ -1,0 +1,3 @@
+# Leviticus 27:2
+
+Speak unto the children of Israel, and say unto them, When a man shall make a singular vow, the persons [shall be] for the LORD by thy estimation.

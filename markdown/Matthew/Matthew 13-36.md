@@ -1,0 +1,3 @@
+# Matthew 13:36
+
+Then Jesus sent the multitude away, and went into the house: and his disciples came unto him, saying, Declare unto us the parable of the tares of the field.

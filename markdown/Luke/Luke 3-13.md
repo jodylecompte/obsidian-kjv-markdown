@@ -1,0 +1,3 @@
+# Luke 3:13
+
+And he said unto them, Exact no more than that which is appointed you.

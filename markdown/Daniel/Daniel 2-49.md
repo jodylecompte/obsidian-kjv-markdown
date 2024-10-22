@@ -1,0 +1,3 @@
+# Daniel 2:49
+
+Then Daniel requested of the king, and he set Shadrach, Meshach, and Abednego, over the affairs of the province of Babylon: but Daniel [sat] in the gate of the king.

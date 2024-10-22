@@ -1,0 +1,3 @@
+# Numbers 6:23
+
+Speak unto Aaron and unto his sons, saying, On this wise ye shall bless the children of Israel, saying unto them,

@@ -1,0 +1,3 @@
+# Jeremiah 3:10
+
+And yet for all this her treacherous sister Judah hath not turned unto me with her whole heart, but feignedly, saith the LORD.

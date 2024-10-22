@@ -1,0 +1,3 @@
+# 1 Kings 7:33
+
+And the work of the wheels [was] like the work of a chariot wheel: their axletrees, and their naves, and their felloes, and their spokes, [were] all molten.

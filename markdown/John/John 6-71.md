@@ -1,0 +1,3 @@
+# John 6:71
+
+He spake of Judas Iscariot [the son] of Simon: for he it was that should betray him, being one of the twelve.

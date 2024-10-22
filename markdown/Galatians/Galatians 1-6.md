@@ -1,0 +1,3 @@
+# Galatians 1:6
+
+I marvel that ye are so soon removed from him that called you into the grace of Christ unto another gospel:

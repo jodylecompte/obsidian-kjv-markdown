@@ -1,0 +1,3 @@
+# Isaiah 39:8
+
+Then said Hezekiah to Isaiah, Good [is] the word of the LORD which thou hast spoken. He said moreover, For there shall be peace and truth in my days.

@@ -1,0 +1,3 @@
+# Luke 2:40
+
+And the child grew, and waxed strong in spirit, filled with wisdom: and the grace of God was upon him.

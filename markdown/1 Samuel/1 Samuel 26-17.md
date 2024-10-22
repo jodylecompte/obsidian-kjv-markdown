@@ -1,0 +1,3 @@
+# 1 Samuel 26:17
+
+And Saul knew David’s voice, and said, [Is] this thy voice, my son David? And David said, [It is] my voice, my lord, O king.

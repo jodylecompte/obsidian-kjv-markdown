@@ -1,0 +1,3 @@
+# 2 Samuel 11:8
+
+And David said to Uriah, Go down to thy house, and wash thy feet. And Uriah departed out of the king’s house, and there followed him a mess [of meat] from the king.

@@ -1,0 +1,3 @@
+# Isaiah 14:18
+
+All the kings of the nations, [even] all of them, lie in glory, every one in his own house.

@@ -1,0 +1,3 @@
+# 1 Kings 1:52
+
+And Solomon said, If he will shew himself a worthy man, there shall not an hair of him fall to the earth: but if wickedness shall be found in him, he shall die.

@@ -1,0 +1,3 @@
+# Micah 1:16
+
+Make thee bald, and poll thee for thy delicate children; enlarge thy baldness as the eagle; for they are gone into captivity from thee.

@@ -1,0 +1,3 @@
+# Psalm 18:11
+
+He made darkness his secret place; his pavilion round about him [were] dark waters [and] thick clouds of the skies.

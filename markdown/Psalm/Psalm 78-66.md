@@ -1,0 +1,3 @@
+# Psalm 78:66
+
+And he smote his enemies in the hinder parts: he put them to a perpetual reproach.

@@ -1,0 +1,3 @@
+# Ezekiel 37:20
+
+And the sticks whereon thou writest shall be in thine hand before their eyes.

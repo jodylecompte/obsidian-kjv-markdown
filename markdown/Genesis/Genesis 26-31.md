@@ -1,0 +1,3 @@
+# Genesis 26:31
+
+And they rose up betimes in the morning, and sware one to another: and Isaac sent them away, and they departed from him in peace.

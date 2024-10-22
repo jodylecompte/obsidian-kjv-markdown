@@ -1,0 +1,3 @@
+# Revelation 1:15
+
+And his feet like unto fine brass, as if they burned in a furnace; and his voice as the sound of many waters.

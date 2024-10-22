@@ -1,0 +1,3 @@
+# Psalm 62:9
+
+Surely men of low degree [are] vanity, [and] men of high degree [are] a lie: to be laid in the balance, they [are] altogether [lighter] than vanity.

@@ -1,0 +1,3 @@
+# Genesis 46:30
+
+And Israel said unto Joseph, Now let me die, since I have seen thy face, because thou [art] yet alive.

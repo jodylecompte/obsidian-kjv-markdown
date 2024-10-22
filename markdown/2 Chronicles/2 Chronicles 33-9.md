@@ -1,0 +1,3 @@
+# 2 Chronicles 33:9
+
+So Manasseh made Judah and the inhabitants of Jerusalem to err, [and] to do worse than the heathen, whom the LORD had destroyed before the children of Israel.

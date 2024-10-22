@@ -1,0 +1,3 @@
+# Acts 7:41
+
+And they made a calf in those days, and offered sacrifice unto the idol, and rejoiced in the works of their own hands.

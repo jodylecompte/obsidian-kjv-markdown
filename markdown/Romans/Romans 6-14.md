@@ -1,0 +1,3 @@
+# Romans 6:14
+
+For sin shall not have dominion over you: for ye are not under the law, but under grace.

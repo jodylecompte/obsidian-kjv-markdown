@@ -1,0 +1,3 @@
+# Genesis 30:36
+
+And he set three days’ journey betwixt himself and Jacob: and Jacob fed the rest of Laban’s flocks.

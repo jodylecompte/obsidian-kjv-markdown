@@ -1,0 +1,3 @@
+# Proverbs 11:27
+
+He that diligently seeketh good procureth favour: but he that seeketh mischief, it shall come unto him.

@@ -1,0 +1,3 @@
+# Psalm 83:4
+
+They have said, Come, and let us cut them off from [being] a nation; that the name of Israel may be no more in remembrance.

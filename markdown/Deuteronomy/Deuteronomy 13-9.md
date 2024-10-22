@@ -1,0 +1,3 @@
+# Deuteronomy 13:9
+
+But thou shalt surely kill him; thine hand shall be first upon him to put him to death, and afterwards the hand of all the people.

@@ -1,0 +1,3 @@
+# Numbers 7:8
+
+And four wagons and eight oxen he gave unto the sons of Merari, according unto their service, under the hand of Ithamar the son of Aaron the priest.

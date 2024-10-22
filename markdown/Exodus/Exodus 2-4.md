@@ -1,0 +1,3 @@
+# Exodus 2:4
+
+And his sister stood afar off, to wit what would be done to him.

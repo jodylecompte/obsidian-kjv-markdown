@@ -1,0 +1,3 @@
+# Psalm 78:43
+
+How he had wrought his signs in Egypt, and his wonders in the field of Zoan:

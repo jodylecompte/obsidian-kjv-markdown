@@ -1,0 +1,3 @@
+# Ezekiel 23:30
+
+I will do these [things] unto thee, because thou hast gone a whoring after the heathen, [and] because thou art polluted with their idols.

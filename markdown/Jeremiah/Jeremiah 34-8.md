@@ -1,0 +1,3 @@
+# Jeremiah 34:8
+
+[This is] the word that came unto Jeremiah from the LORD, after that the king Zedekiah had made a covenant with all the people which [were] at Jerusalem, to proclaim liberty unto them;

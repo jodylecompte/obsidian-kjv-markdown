@@ -1,0 +1,3 @@
+# Genesis 37:33
+
+And he knew it, and said, [It is] my son’s coat; an evil beast hath devoured him; Joseph is without doubt rent in pieces.

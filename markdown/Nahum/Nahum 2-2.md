@@ -1,0 +1,3 @@
+# Nahum 2:2
+
+For the LORD hath turned away the excellency of Jacob, as the excellency of Israel: for the emptiers have emptied them out, and marred their vine branches.

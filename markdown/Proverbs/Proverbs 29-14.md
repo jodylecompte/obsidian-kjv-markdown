@@ -1,0 +1,3 @@
+# Proverbs 29:14
+
+The king that faithfully judgeth the poor, his throne shall be established for ever.

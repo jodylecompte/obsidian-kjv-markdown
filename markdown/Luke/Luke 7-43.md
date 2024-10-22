@@ -1,0 +1,3 @@
+# Luke 7:43
+
+Simon answered and said, I suppose that [he], to whom he forgave most. And he said unto him, Thou hast rightly judged.

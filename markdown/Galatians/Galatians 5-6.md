@@ -1,0 +1,3 @@
+# Galatians 5:6
+
+For in Jesus Christ neither circumcision availeth any thing, nor uncircumcision; but faith which worketh by love.

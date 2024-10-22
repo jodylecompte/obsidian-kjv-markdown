@@ -1,0 +1,3 @@
+# Acts 3:1
+
+Now Peter and John went up together into the temple at the hour of prayer, [being] the ninth [hour].

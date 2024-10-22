@@ -1,0 +1,3 @@
+# Jeremiah 51:56
+
+Because the spoiler is come upon her, [even] upon Babylon, and her mighty men are taken, every one of their bows is broken: for the LORD God of recompences shall surely requite.

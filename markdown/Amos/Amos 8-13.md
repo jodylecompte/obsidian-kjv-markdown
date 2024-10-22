@@ -1,0 +1,3 @@
+# Amos 8:13
+
+In that day shall the fair virgins and young men faint for thirst.

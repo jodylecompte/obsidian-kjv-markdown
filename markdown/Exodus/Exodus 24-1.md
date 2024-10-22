@@ -1,0 +1,3 @@
+# Exodus 24:1
+
+And he said unto Moses, Come up unto the LORD, thou, and Aaron, Nadab, and Abihu, and seventy of the elders of Israel; and worship ye afar off.

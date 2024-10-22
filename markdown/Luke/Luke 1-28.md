@@ -1,0 +1,3 @@
+# Luke 1:28
+
+And the angel came in unto her, and said, Hail, [thou that art] highly favoured, the Lord [is] with thee: blessed [art] thou among women.

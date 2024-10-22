@@ -1,0 +1,3 @@
+# Jeremiah 4:17
+
+As keepers of a field, are they against her round about; because she hath been rebellious against me, saith the LORD.

@@ -1,0 +1,3 @@
+# Luke 17:4
+
+And if he trespass against thee seven times in a day, and seven times in a day turn again to thee, saying, I repent; thou shalt forgive him.

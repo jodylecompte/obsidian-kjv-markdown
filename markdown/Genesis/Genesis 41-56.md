@@ -1,0 +1,3 @@
+# Genesis 41:56
+
+And the famine was over all the face of the earth: And Joseph opened all the storehouses, and sold unto the Egyptians; and the famine waxed sore in the land of Egypt.

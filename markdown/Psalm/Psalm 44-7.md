@@ -1,0 +1,3 @@
+# Psalm 44:7
+
+But thou hast saved us from our enemies, and hast put them to shame that hated us.

@@ -1,0 +1,3 @@
+# Deuteronomy 29:21
+
+And the LORD shall separate him unto evil out of all the tribes of Israel, according to all the curses of the covenant that are written in this book of the law:

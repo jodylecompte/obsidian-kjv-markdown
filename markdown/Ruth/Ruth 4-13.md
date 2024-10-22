@@ -1,0 +1,3 @@
+# Ruth 4:13
+
+So Boaz took Ruth, and she was his wife: and when he went in unto her, the LORD gave her conception, and she bare a son.

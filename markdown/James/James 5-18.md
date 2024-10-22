@@ -1,0 +1,3 @@
+# James 5:18
+
+And he prayed again, and the heaven gave rain, and the earth brought forth her fruit.

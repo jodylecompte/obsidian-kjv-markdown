@@ -1,0 +1,3 @@
+# Psalm 30:7
+
+LORD, by thy favour thou hast made my mountain to stand strong: thou didst hide thy face, [and] I was troubled.

@@ -1,0 +1,3 @@
+# 1 Kings 9:27
+
+And Hiram sent in the navy his servants, shipmen that had knowledge of the sea, with the servants of Solomon.

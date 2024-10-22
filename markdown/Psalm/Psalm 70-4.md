@@ -1,0 +1,3 @@
+# Psalm 70:4
+
+Let all those that seek thee rejoice and be glad in thee: and let such as love thy salvation say continually, Let God be magnified.

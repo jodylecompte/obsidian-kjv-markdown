@@ -1,0 +1,3 @@
+# Ezekiel 24:2
+
+Son of man, write thee the name of the day, [even] of this same day: the king of Babylon set himself against Jerusalem this same day.

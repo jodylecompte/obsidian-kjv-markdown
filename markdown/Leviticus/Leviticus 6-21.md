@@ -1,0 +1,3 @@
+# Leviticus 6:21
+
+In a pan it shall be made with oil; [and when it is] baken, thou shalt bring it in: [and] the baken pieces of the meat offering shalt thou offer [for] a sweet savour unto the LORD.

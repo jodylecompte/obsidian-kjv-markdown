@@ -1,0 +1,3 @@
+# Colossians 1:18
+
+And he is the head of the body, the church: who is the beginning, the firstborn from the dead; that in all [things] he might have the preeminence.

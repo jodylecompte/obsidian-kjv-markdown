@@ -1,0 +1,3 @@
+# Ecclesiastes 3:20
+
+All go unto one place; all are of the dust, and all turn to dust again.

@@ -1,0 +1,3 @@
+# Isaiah 4:2
+
+In that day shall the branch of the LORD be beautiful and glorious, and the fruit of the earth [shall be] excellent and comely for them that are escaped of Israel.

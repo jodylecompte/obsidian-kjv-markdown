@@ -1,0 +1,3 @@
+# Judges 11:27
+
+Wherefore I have not sinned against thee, but thou doest me wrong to war against me: the LORD the Judge be judge this day between the children of Israel and the children of Ammon.

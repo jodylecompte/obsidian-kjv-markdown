@@ -1,0 +1,3 @@
+# Colossians 2:22
+
+Which all are to perish with the using;) after the commandments and doctrines of men?

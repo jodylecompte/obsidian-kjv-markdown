@@ -1,0 +1,3 @@
+# Genesis 31:48
+
+And Laban said, This heap [is] a witness between me and thee this day. Therefore was the name of it called Galeed;

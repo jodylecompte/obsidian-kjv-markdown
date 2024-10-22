@@ -1,0 +1,3 @@
+# Luke 18:7
+
+And shall not God avenge his own elect, which cry day and night unto him, though he bear long with them?

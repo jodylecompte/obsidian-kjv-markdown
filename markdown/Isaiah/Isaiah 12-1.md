@@ -1,0 +1,3 @@
+# Isaiah 12:1
+
+And in that day thou shalt say, O LORD, I will praise thee: though thou wast angry with me, thine anger is turned away, and thou comfortedst me.

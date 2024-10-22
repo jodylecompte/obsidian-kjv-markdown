@@ -1,0 +1,3 @@
+# Mark 7:20
+
+And he said, That which cometh out of the man, that defileth the man.

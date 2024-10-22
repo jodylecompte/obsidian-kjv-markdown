@@ -1,0 +1,3 @@
+# Psalm 31:21
+
+Blessed [be] the LORD: for he hath shewed me his marvellous kindness in a strong city.

@@ -1,0 +1,3 @@
+# Ecclesiastes 1:6
+
+The wind goeth toward the south, and turneth about unto the north; it whirleth about continually, and the wind returneth again according to his circuits.

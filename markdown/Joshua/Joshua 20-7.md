@@ -1,0 +1,3 @@
+# Joshua 20:7
+
+And they appointed Kedesh in Galilee in mount Naphtali, and Shechem in mount Ephraim, and Kirjatharba, which [is] Hebron, in the mountain of Judah.

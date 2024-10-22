@@ -1,0 +1,3 @@
+# Psalm 18:32
+
+[It is] God that girdeth me with strength, and maketh my way perfect.

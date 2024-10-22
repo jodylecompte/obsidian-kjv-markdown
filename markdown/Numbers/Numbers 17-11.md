@@ -1,0 +1,3 @@
+# Numbers 17:11
+
+And Moses did [so]: as the LORD commanded him, so did he.

@@ -1,0 +1,3 @@
+# Exodus 12:36
+
+And the LORD gave the people favour in the sight of the Egyptians, so that they lent unto them [such things as they required]. And they spoiled the Egyptians.

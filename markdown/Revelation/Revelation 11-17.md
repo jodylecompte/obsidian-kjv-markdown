@@ -1,0 +1,3 @@
+# Revelation 11:17
+
+Saying, We give thee thanks, O Lord God Almighty, which art, and wast, and art to come; because thou hast taken to thee thy great power, and hast reigned.

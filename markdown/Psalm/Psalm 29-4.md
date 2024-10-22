@@ -1,0 +1,3 @@
+# Psalm 29:4
+
+The voice of the LORD [is] powerful; the voice of the LORD [is] full of majesty.

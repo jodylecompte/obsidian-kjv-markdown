@@ -1,0 +1,3 @@
+# Ezekiel 33:16
+
+None of his sins that he hath committed shall be mentioned unto him: he hath done that which is lawful and right; he shall surely live.

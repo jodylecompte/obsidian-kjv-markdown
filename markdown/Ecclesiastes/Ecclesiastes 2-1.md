@@ -1,0 +1,3 @@
+# Ecclesiastes 2:1
+
+I said in mine heart, Go to now, I will prove thee with mirth, therefore enjoy pleasure: and, behold, this also [is] vanity.

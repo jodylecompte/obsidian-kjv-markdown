@@ -1,0 +1,3 @@
+# Matthew 13:21
+
+Yet hath he not root in himself, but dureth for a while: for when tribulation or persecution ariseth because of the word, by and by he is offended.

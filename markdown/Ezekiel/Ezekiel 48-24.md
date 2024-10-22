@@ -1,0 +1,3 @@
+# Ezekiel 48:24
+
+And by the border of Benjamin, from the east side unto the west side, Simeon [shall have] a [portion].

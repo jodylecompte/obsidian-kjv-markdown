@@ -1,0 +1,3 @@
+# Ecclesiastes 8:13
+
+But it shall not be well with the wicked, neither shall he prolong [his] days, [which are] as a shadow; because he feareth not before God.

@@ -1,0 +1,3 @@
+# Ezra 9:3
+
+And when I heard this thing, I rent my garment and my mantle, and plucked off the hair of my head and of my beard, and sat down astonied.

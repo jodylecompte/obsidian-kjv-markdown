@@ -1,0 +1,3 @@
+# 2 Chronicles 6:18
+
+But will God in very deed dwell with men on the earth? behold, heaven and the heaven of heavens cannot contain thee; how much less this house which I have built!

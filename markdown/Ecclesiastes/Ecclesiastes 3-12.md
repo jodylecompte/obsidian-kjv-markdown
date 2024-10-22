@@ -1,0 +1,3 @@
+# Ecclesiastes 3:12
+
+I know that [there is] no good in them, but for [a man] to rejoice, and to do good in his life.

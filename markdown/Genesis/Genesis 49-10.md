@@ -1,0 +1,3 @@
+# Genesis 49:10
+
+The sceptre shall not depart from Judah, nor a lawgiver from between his feet, until Shiloh come; and unto him [shall] the gathering of the people [be].

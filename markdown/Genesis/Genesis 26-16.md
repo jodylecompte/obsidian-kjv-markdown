@@ -1,0 +1,3 @@
+# Genesis 26:16
+
+And Abimelech said unto Isaac, Go from us; for thou art much mightier than we.

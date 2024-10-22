@@ -1,0 +1,3 @@
+# Ezekiel 48:3
+
+And by the border of Asher, from the east side even unto the west side, a [portion for] Naphtali.

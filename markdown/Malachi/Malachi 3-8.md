@@ -1,0 +1,3 @@
+# Malachi 3:8
+
+Will a man rob God? Yet ye have robbed me. But ye say, Wherein have we robbed thee? In tithes and offerings.

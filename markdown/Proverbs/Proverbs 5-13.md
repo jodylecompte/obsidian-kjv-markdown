@@ -1,0 +1,3 @@
+# Proverbs 5:13
+
+And have not obeyed the voice of my teachers, nor inclined mine ear to them that instructed me!

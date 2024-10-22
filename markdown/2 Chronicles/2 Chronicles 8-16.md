@@ -1,0 +1,3 @@
+# 2 Chronicles 8:16
+
+Now all the work of Solomon was prepared unto the day of the foundation of the house of the LORD, and until it was finished. [So] the house of the LORD was perfected.

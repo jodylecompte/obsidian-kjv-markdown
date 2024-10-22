@@ -1,0 +1,3 @@
+# Genesis 3:15
+
+And I will put enmity between thee and the woman, and between thy seed and her seed; it shall bruise thy head, and thou shalt bruise his heel.

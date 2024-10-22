@@ -1,0 +1,3 @@
+# Luke 7:45
+
+Thou gavest me no kiss: but this woman since the time I came in hath not ceased to kiss my feet.

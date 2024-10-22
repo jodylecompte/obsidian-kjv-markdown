@@ -1,0 +1,3 @@
+# 2 Samuel 12:17
+
+And the elders of his house arose, [and went] to him, to raise him up from the earth: but he would not, neither did he eat bread with them.

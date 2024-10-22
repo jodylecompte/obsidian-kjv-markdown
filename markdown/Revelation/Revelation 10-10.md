@@ -1,0 +1,3 @@
+# Revelation 10:10
+
+And I took the little book out of the angel’s hand, and ate it up; and it was in my mouth sweet as honey: and as soon as I had eaten it, my belly was bitter.

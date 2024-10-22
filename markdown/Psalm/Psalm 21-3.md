@@ -1,0 +1,3 @@
+# Psalm 21:3
+
+For thou preventest him with the blessings of goodness: thou settest a crown of pure gold on his head.

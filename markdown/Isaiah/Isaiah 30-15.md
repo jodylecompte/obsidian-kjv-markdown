@@ -1,0 +1,3 @@
+# Isaiah 30:15
+
+For thus saith the Lord GOD, the Holy One of Israel; In returning and rest shall ye be saved; in quietness and in confidence shall be your strength: and ye would not.

@@ -1,0 +1,3 @@
+# Romans 15:12
+
+And again, Esaias saith, There shall be a root of Jesse, and he that shall rise to reign over the Gentiles; in him shall the Gentiles trust.

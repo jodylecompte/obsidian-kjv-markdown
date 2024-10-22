@@ -1,0 +1,3 @@
+# Joshua 1:17
+
+According as we hearkened unto Moses in all things, so will we hearken unto thee: only the LORD thy God be with thee, as he was with Moses.

@@ -1,0 +1,3 @@
+# Exodus 30:25
+
+And thou shalt make it an oil of holy ointment, an ointment compound after the art of the apothecary: it shall be an holy anointing oil.

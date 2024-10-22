@@ -1,0 +1,3 @@
+# Psalm 44:5
+
+Through thee will we push down our enemies: through thy name will we tread them under that rise up against us.

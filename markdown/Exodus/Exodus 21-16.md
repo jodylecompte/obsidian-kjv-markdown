@@ -1,0 +1,3 @@
+# Exodus 21:16
+
+And he that stealeth a man, and selleth him, or if he be found in his hand, he shall surely be put to death.

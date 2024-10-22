@@ -1,0 +1,3 @@
+# Mark 9:22
+
+And ofttimes it hath cast him into the fire, and into the waters, to destroy him: but if thou canst do any thing, have compassion on us, and help us.

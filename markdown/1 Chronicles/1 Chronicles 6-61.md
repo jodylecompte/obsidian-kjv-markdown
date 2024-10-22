@@ -1,0 +1,3 @@
+# 1 Chronicles 6:61
+
+And unto the sons of Kohath, [which were] left of the family of that tribe, [were cities given] out of the half tribe, [namely, out of] the half [tribe] of Manasseh, by lot, ten cities.

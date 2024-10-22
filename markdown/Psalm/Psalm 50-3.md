@@ -1,0 +1,3 @@
+# Psalm 50:3
+
+Our God shall come, and shall not keep silence: a fire shall devour before him, and it shall be very tempestuous round about him.

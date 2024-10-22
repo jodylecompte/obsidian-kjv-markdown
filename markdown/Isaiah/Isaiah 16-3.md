@@ -1,0 +1,3 @@
+# Isaiah 16:3
+
+Take counsel, execute judgment; make thy shadow as the night in the midst of the noonday; hide the outcasts; bewray not him that wandereth.

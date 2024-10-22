@@ -1,0 +1,3 @@
+# 1 Samuel 30:11
+
+And they found an Egyptian in the field, and brought him to David, and gave him bread, and he did eat; and they made him drink water;

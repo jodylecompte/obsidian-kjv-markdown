@@ -1,0 +1,3 @@
+# Romans 9:10
+
+And not only [this]; but when Rebecca also had conceived by one, [even] by our father Isaac;

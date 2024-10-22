@@ -1,0 +1,3 @@
+# Joshua 11:9
+
+And Joshua did unto them as the LORD bade him: he houghed their horses, and burnt their chariots with fire.

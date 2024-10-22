@@ -1,0 +1,3 @@
+# 1 Samuel 1:4
+
+And when the time was that Elkanah offered, he gave to Peninnah his wife, and to all her sons and her daughters, portions:

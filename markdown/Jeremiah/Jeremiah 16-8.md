@@ -1,0 +1,3 @@
+# Jeremiah 16:8
+
+Thou shalt not also go into the house of feasting, to sit with them to eat and to drink.

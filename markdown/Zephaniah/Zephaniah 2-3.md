@@ -1,0 +1,3 @@
+# Zephaniah 2:3
+
+Seek ye the LORD, all ye meek of the earth, which have wrought his judgment; seek righteousness, seek meekness: it may be ye shall be hid in the day of the LORD’S anger.

@@ -1,0 +1,3 @@
+# Ezekiel 22:28
+
+And her prophets have daubed them with untempered [morter], seeing vanity, and divining lies unto them, saying, Thus saith the Lord GOD, when the LORD hath not spoken.

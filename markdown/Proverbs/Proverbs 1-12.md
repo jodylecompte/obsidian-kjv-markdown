@@ -1,0 +1,3 @@
+# Proverbs 1:12
+
+Let us swallow them up alive as the grave; and whole, as those that go down into the pit:

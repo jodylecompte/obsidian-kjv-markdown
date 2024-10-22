@@ -1,0 +1,3 @@
+# Numbers 14:44
+
+But they presumed to go up unto the hill top: nevertheless the ark of the covenant of the LORD, and Moses, departed not out of the camp.

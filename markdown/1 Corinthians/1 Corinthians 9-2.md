@@ -1,0 +1,3 @@
+# 1 Corinthians 9:2
+
+If I be not an apostle unto others, yet doubtless I am to you: for the seal of mine apostleship are ye in the Lord.

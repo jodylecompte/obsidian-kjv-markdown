@@ -1,0 +1,3 @@
+# Psalm 36:7
+
+How excellent [is] thy lovingkindness, O God! therefore the children of men put their trust under the shadow of thy wings.

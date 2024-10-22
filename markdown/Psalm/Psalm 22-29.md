@@ -1,0 +1,3 @@
+# Psalm 22:29
+
+All [they that be] fat upon earth shall eat and worship: all they that go down to the dust shall bow before him: and none can keep alive his own soul.

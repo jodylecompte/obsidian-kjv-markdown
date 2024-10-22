@@ -1,0 +1,3 @@
+# 1 Samuel 20:26
+
+Nevertheless Saul spake not any thing that day: for he thought, Something hath befallen him, he [is] not clean; surely he [is] not clean.

@@ -1,0 +1,3 @@
+# Acts 16:1
+
+Then came he to Derbe and Lystra: and, behold, a certain disciple was there, named Timotheus, the son of a certain woman, which was a Jewess, and believed; but his father [was] a Greek:

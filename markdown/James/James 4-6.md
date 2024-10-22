@@ -1,0 +1,3 @@
+# James 4:6
+
+But he giveth more grace. Wherefore he saith, God resisteth the proud, but giveth grace unto the humble.

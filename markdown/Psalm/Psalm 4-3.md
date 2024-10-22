@@ -1,0 +1,3 @@
+# Psalm 4:3
+
+But know that the LORD hath set apart him that is godly for himself: the LORD will hear when I call unto him.

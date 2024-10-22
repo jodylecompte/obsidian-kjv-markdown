@@ -1,0 +1,3 @@
+# Ezekiel 41:13
+
+So he measured the house, an hundred cubits long; and the separate place, and the building, with the walls thereof, an hundred cubits long;

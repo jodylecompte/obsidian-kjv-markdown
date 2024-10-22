@@ -1,0 +1,3 @@
+# Ezekiel 33:33
+
+And when this cometh to pass, (lo, it will come,) then shall they know that a prophet hath been among them.

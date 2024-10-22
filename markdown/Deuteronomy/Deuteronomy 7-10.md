@@ -1,0 +1,3 @@
+# Deuteronomy 7:10
+
+And repayeth them that hate him to their face, to destroy them: he will not be slack to him that hateth him, he will repay him to his face.

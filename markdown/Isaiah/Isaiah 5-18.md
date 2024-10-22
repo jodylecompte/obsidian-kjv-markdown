@@ -1,0 +1,3 @@
+# Isaiah 5:18
+
+Woe unto them that draw iniquity with cords of vanity, and sin as it were with a cart rope:

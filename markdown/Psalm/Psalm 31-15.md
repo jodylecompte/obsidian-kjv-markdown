@@ -1,0 +1,3 @@
+# Psalm 31:15
+
+My times [are] in thy hand: deliver me from the hand of mine enemies, and from them that persecute me.

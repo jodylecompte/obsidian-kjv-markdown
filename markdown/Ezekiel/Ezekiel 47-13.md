@@ -1,0 +1,3 @@
+# Ezekiel 47:13
+
+Thus saith the Lord GOD; This [shall be] the border, whereby ye shall inherit the land according to the twelve tribes of Israel: Joseph [shall have two] portions.

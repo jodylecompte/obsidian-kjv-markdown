@@ -1,0 +1,3 @@
+# Nehemiah 9:16
+
+But they and our fathers dealt proudly, and hardened their necks, and hearkened not to thy commandments,

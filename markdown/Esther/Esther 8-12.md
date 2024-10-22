@@ -1,0 +1,3 @@
+# Esther 8:12
+
+Upon one day in all the provinces of king Ahasuerus, [namely], upon the thirteenth [day] of the twelfth month, which [is] the month Adar.

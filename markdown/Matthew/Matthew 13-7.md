@@ -1,0 +1,3 @@
+# Matthew 13:7
+
+And some fell among thorns; and the thorns sprung up, and choked them:

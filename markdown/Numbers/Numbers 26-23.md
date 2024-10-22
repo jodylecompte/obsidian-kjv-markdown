@@ -1,0 +1,3 @@
+# Numbers 26:23
+
+[Of] the sons of Issachar after their families: [of] Tola, the family of the Tolaites: of Pua, the family of the Punites:

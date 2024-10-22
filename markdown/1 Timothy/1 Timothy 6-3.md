@@ -1,0 +1,3 @@
+# 1 Timothy 6:3
+
+If any man teach otherwise, and consent not to wholesome words, [even] the words of our Lord Jesus Christ, and to the doctrine which is according to godliness;

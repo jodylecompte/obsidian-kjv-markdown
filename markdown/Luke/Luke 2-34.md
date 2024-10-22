@@ -1,0 +1,3 @@
+# Luke 2:34
+
+And Simeon blessed them, and said unto Mary his mother, Behold, this [child] is set for the fall and rising again of many in Israel; and for a sign which shall be spoken against;

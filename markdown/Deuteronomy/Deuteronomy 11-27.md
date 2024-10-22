@@ -1,0 +1,3 @@
+# Deuteronomy 11:27
+
+A blessing, if ye obey the commandments of the LORD your God, which I command you this day:

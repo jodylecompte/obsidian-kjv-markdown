@@ -1,0 +1,3 @@
+# Proverbs 13:17
+
+A wicked messenger falleth into mischief: but a faithful ambassador [is] health.

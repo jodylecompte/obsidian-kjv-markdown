@@ -1,0 +1,3 @@
+# Acts 13:6
+
+And when they had gone through the isle unto Paphos, they found a certain sorcerer, a false prophet, a Jew, whose name [was] Barjesus:

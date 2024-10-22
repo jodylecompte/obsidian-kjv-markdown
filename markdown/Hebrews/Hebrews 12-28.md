@@ -1,0 +1,3 @@
+# Hebrews 12:28
+
+Wherefore we receiving a kingdom which cannot be moved, let us have grace, whereby we may serve God acceptably with reverence and godly fear:

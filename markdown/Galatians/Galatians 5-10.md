@@ -1,0 +1,3 @@
+# Galatians 5:10
+
+I have confidence in you through the Lord, that ye will be none otherwise minded: but he that troubleth you shall bear his judgment, whosoever he be.

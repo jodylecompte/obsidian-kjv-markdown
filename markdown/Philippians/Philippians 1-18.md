@@ -1,0 +1,3 @@
+# Philippians 1:18
+
+What then? notwithstanding, every way, whether in pretence, or in truth, Christ is preached; and I therein do rejoice, yea, and will rejoice.

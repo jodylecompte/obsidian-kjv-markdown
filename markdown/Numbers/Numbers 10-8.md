@@ -1,0 +1,3 @@
+# Numbers 10:8
+
+And the sons of Aaron, the priests, shall blow with the trumpets; and they shall be to you for an ordinance for ever throughout your generations.

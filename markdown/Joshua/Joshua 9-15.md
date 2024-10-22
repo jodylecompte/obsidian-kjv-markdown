@@ -1,0 +1,3 @@
+# Joshua 9:15
+
+And Joshua made peace with them, and made a league with them, to let them live: and the princes of the congregation sware unto them.

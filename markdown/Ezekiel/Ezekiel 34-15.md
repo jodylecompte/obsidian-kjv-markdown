@@ -1,0 +1,3 @@
+# Ezekiel 34:15
+
+I will feed my flock, and I will cause them to lie down, saith the Lord GOD.

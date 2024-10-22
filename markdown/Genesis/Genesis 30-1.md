@@ -1,0 +1,3 @@
+# Genesis 30:1
+
+And when Rachel saw that she bare Jacob no children, Rachel envied her sister; and said unto Jacob, Give me children, or else I die.

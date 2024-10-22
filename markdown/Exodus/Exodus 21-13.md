@@ -1,0 +1,3 @@
+# Exodus 21:13
+
+And if a man lie not in wait, but God deliver [him] into his hand; then I will appoint thee a place whither he shall flee.

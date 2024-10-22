@@ -1,0 +1,3 @@
+# Ezekiel 34:14
+
+I will feed them in a good pasture, and upon the high mountains of Israel shall their fold be: there shall they lie in a good fold, and [in] a fat pasture shall they feed upon the mountains of Israel.

@@ -1,0 +1,3 @@
+# Jeremiah 36:28
+
+Take thee again another roll, and write in it all the former words that were in the first roll, which Jehoiakim the king of Judah hath burned.

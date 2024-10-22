@@ -1,0 +1,3 @@
+# Acts 7:58
+
+And cast [him] out of the city, and stoned [him]: and the witnesses laid down their clothes at a young man’s feet, whose name was Saul.

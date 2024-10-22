@@ -1,0 +1,3 @@
+# Psalm 62:5
+
+My soul, wait thou only upon God; for my expectation [is] from him.

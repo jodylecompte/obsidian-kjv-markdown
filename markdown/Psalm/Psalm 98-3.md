@@ -1,0 +1,3 @@
+# Psalm 98:3
+
+He hath remembered his mercy and his truth toward the house of Israel: all the ends of the earth have seen the salvation of our God.

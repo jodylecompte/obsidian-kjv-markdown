@@ -1,0 +1,3 @@
+# Matthew 24:22
+
+And except those days should be shortened, there should no flesh be saved: but for the elect’s sake those days shall be shortened.

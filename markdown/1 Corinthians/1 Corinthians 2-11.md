@@ -1,0 +1,3 @@
+# 1 Corinthians 2:11
+
+For what man knoweth the things of a man, save the spirit of man which is in him? even so the things of God knoweth no man, but the Spirit of God.

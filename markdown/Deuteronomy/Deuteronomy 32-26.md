@@ -1,0 +1,3 @@
+# Deuteronomy 32:26
+
+I said, I would scatter them into corners, I would make the remembrance of them to cease from among men:

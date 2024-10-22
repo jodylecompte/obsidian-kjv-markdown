@@ -1,0 +1,3 @@
+# Isaiah 29:9
+
+Stay yourselves, and wonder; cry ye out, and cry: they are drunken, but not with wine; they stagger, but not with strong drink.

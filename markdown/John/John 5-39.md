@@ -1,0 +1,3 @@
+# John 5:39
+
+Search the scriptures; for in them ye think ye have eternal life: and they are they which testify of me.

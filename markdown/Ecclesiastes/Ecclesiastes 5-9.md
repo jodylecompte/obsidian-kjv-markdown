@@ -1,0 +1,3 @@
+# Ecclesiastes 5:9
+
+Moreover the profit of the earth is for all: the king [himself] is served by the field.

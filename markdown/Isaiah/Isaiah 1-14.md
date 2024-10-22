@@ -1,0 +1,3 @@
+# Isaiah 1:14
+
+Your new moons and your appointed feasts my soul hateth: they are a trouble unto me; I am weary to bear [them].

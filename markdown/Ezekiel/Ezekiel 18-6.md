@@ -1,0 +1,3 @@
+# Ezekiel 18:6
+
+[And] hath not eaten upon the mountains, neither hath lifted up his eyes to the idols of the house of Israel, neither hath defiled his neighbour’s wife, neither hath come near to a menstruous woman,

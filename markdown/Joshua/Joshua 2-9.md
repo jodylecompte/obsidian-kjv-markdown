@@ -1,0 +1,3 @@
+# Joshua 2:9
+
+And she said unto the men, I know that the LORD hath given you the land, and that your terror is fallen upon us, and that all the inhabitants of the land faint because of you.

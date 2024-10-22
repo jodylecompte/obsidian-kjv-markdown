@@ -1,0 +1,3 @@
+# 2 Samuel 19:20
+
+For thy servant doth know that I have sinned: therefore, behold, I am come the first this day of all the house of Joseph to go down to meet my lord the king.

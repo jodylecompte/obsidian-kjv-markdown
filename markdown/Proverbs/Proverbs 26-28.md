@@ -1,0 +1,3 @@
+# Proverbs 26:28
+
+A lying tongue hateth [those that are] afflicted by it; and a flattering mouth worketh ruin.

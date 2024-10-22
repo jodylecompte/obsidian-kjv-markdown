@@ -1,0 +1,3 @@
+# 2 Peter 3:5
+
+For this they willingly are ignorant of, that by the word of God the heavens were of old, and the earth standing out of the water and in the water:

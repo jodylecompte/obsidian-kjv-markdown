@@ -1,0 +1,3 @@
+# Exodus 4:23
+
+And I say unto thee, Let my son go, that he may serve me: and if thou refuse to let him go, behold, I will slay thy son, [even] thy firstborn.

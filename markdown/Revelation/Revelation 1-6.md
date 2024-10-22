@@ -1,0 +1,3 @@
+# Revelation 1:6
+
+And hath made us kings and priests unto God and his Father; to him [be] glory and dominion for ever and ever. Amen.

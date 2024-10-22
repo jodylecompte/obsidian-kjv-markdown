@@ -1,0 +1,3 @@
+# Jeremiah 5:29
+
+Shall I not visit for these [things]? saith the LORD: shall not my soul be avenged on such a nation as this?

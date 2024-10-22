@@ -1,0 +1,3 @@
+# Genesis 15:12
+
+And when the sun was going down, a deep sleep fell upon Abram; and, lo, an horror of great darkness fell upon him.

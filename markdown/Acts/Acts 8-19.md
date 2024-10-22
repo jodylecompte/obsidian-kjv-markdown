@@ -1,0 +1,3 @@
+# Acts 8:19
+
+Saying, Give me also this power, that on whomsoever I lay hands, he may receive the Holy Ghost.

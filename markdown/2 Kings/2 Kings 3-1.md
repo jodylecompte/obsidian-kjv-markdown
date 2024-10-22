@@ -1,0 +1,3 @@
+# 2 Kings 3:1
+
+Now Jehoram the son of Ahab began to reign over Israel in Samaria the eighteenth year of Jehoshaphat king of Judah, and reigned twelve years.

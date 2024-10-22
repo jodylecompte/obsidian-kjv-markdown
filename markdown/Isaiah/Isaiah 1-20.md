@@ -1,0 +1,3 @@
+# Isaiah 1:20
+
+But if ye refuse and rebel, ye shall be devoured with the sword: for the mouth of the LORD hath spoken [it].

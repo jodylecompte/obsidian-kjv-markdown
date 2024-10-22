@@ -1,0 +1,3 @@
+# Mark 5:30
+
+And Jesus, immediately knowing in himself that virtue had gone out of him, turned him about in the press, and said, Who touched my clothes?

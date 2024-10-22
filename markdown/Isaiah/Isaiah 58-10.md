@@ -1,0 +1,3 @@
+# Isaiah 58:10
+
+And [if] thou draw out thy soul to the hungry, and satisfy the afflicted soul; then shall thy light rise in obscurity, and thy darkness [be] as the noonday:

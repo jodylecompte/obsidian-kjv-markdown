@@ -1,0 +1,3 @@
+# Zechariah 1:17
+
+Cry yet, saying, Thus saith the LORD of hosts; My cities through prosperity shall yet be spread abroad; and the LORD shall yet comfort Zion, and shall yet choose Jerusalem.

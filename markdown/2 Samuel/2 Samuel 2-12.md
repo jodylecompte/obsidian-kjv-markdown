@@ -1,0 +1,3 @@
+# 2 Samuel 2:12
+
+And Abner the son of Ner, and the servants of Ishbosheth the son of Saul, went out from Mahanaim to Gibeon.

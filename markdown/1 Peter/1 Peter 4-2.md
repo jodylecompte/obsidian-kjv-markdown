@@ -1,0 +1,3 @@
+# 1 Peter 4:2
+
+That he no longer should live the rest of [his] time in the flesh to the lusts of men, but to the will of God.

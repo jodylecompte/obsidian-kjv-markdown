@@ -1,0 +1,3 @@
+# Hebrews 8:7
+
+For if that first [covenant] had been faultless, then should no place have been sought for the second.

@@ -1,0 +1,3 @@
+# Isaiah 66:18
+
+For I [know] their works and their thoughts: it shall come, that I will gather all nations and tongues; and they shall come, and see my glory.

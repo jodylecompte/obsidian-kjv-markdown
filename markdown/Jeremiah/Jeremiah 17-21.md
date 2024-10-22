@@ -1,0 +1,3 @@
+# Jeremiah 17:21
+
+Thus saith the LORD; Take heed to yourselves, and bear no burden on the sabbath day, nor bring [it] in by the gates of Jerusalem;

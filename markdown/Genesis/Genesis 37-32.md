@@ -1,0 +1,3 @@
+# Genesis 37:32
+
+And they sent the coat of [many] colours, and they brought [it] to their father; and said, This have we found: know now whether it [be] thy son’s coat or no.

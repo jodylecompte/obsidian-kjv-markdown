@@ -1,0 +1,3 @@
+# Isaiah 59:4
+
+None calleth for justice, nor [any] pleadeth for truth: they trust in vanity, and speak lies; they conceive mischief, and bring forth iniquity.

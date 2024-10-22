@@ -1,0 +1,3 @@
+# Exodus 8:32
+
+And Pharaoh hardened his heart at this time also, neither would he let the people go.

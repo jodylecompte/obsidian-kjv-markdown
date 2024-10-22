@@ -1,0 +1,3 @@
+# 1 Samuel 5:5
+
+Therefore neither the priests of Dagon, nor any that come into Dagon’s house, tread on the threshold of Dagon in Ashdod unto this day.

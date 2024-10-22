@@ -1,0 +1,3 @@
+# Ezekiel 9:1
+
+He cried also in mine ears with a loud voice, saying, Cause them that have charge over the city to draw near, even every man [with] his destroying weapon in his hand.

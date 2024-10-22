@@ -1,0 +1,3 @@
+# Acts 8:10
+
+To whom they all gave heed, from the least to the greatest, saying, This man is the great power of God.

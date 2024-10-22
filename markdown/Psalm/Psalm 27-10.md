@@ -1,0 +1,3 @@
+# Psalm 27:10
+
+When my father and my mother forsake me, then the LORD will take me up.

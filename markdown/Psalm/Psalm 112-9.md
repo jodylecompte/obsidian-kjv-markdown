@@ -1,0 +1,3 @@
+# Psalm 112:9
+
+He hath dispersed, he hath given to the poor; his righteousness endureth for ever; his horn shall be exalted with honour.

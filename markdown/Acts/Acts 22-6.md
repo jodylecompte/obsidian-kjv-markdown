@@ -1,0 +1,3 @@
+# Acts 22:6
+
+And it came to pass, that, as I made my journey, and was come nigh unto Damascus about noon, suddenly there shone from heaven a great light round about me.

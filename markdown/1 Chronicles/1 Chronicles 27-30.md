@@ -1,0 +1,3 @@
+# 1 Chronicles 27:30
+
+Over the camels also [was] Obil the Ishmaelite: and over the asses [was] Jehdeiah the Meronothite:

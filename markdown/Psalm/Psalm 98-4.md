@@ -1,0 +1,3 @@
+# Psalm 98:4
+
+Make a joyful noise unto the LORD, all the earth: make a loud noise, and rejoice, and sing praise.

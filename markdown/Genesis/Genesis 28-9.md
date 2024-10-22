@@ -1,0 +1,3 @@
+# Genesis 28:9
+
+Then went Esau unto Ishmael, and took unto the wives which he had Mahalath the daughter of Ishmael Abraham’s son, the sister of Nebajoth, to be his wife.

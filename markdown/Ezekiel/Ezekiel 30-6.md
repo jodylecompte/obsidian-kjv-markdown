@@ -1,0 +1,3 @@
+# Ezekiel 30:6
+
+Thus saith the LORD; They also that uphold Egypt shall fall; and the pride of her power shall come down: from the tower of Syene shall they fall in it by the sword, saith the Lord GOD.

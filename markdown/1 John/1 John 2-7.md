@@ -1,0 +1,3 @@
+# 1 John 2:7
+
+Brethren, I write no new commandment unto you, but an old commandment which ye had from the beginning. The old commandment is the word which ye have heard from the beginning.

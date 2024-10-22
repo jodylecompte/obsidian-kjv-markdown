@@ -1,0 +1,3 @@
+# Genesis 18:21
+
+I will go down now, and see whether they have done altogether according to the cry of it, which is come unto me; and if not, I will know.

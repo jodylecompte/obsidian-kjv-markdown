@@ -1,0 +1,3 @@
+# Revelation 11:8
+
+And their dead bodies [shall lie] in the street of the great city, which spiritually is called Sodom and Egypt, where also our Lord was crucified.

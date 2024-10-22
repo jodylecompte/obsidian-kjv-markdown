@@ -1,0 +1,3 @@
+# Genesis 13:4
+
+Unto the place of the altar, which he had made there at the first: and there Abram called on the name of the LORD.

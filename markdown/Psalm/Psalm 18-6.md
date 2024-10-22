@@ -1,0 +1,3 @@
+# Psalm 18:6
+
+In my distress I called upon the LORD, and cried unto my God: he heard my voice out of his temple, and my cry came before him, [even] into his ears.

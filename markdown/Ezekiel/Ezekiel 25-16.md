@@ -1,0 +1,3 @@
+# Ezekiel 25:16
+
+Therefore thus saith the Lord GOD; Behold, I will stretch out mine hand upon the Philistines, and I will cut off the Cherethims, and destroy the remnant of the sea coast.

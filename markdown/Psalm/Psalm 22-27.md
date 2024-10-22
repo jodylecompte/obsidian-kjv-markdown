@@ -1,0 +1,3 @@
+# Psalm 22:27
+
+All the ends of the world shall remember and turn unto the LORD: and all the kindreds of the nations shall worship before thee.

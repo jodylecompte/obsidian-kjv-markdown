@@ -1,0 +1,3 @@
+# 2 Peter 3:11
+
+[Seeing] then [that] all these things shall be dissolved, what manner [of persons] ought ye to be in [all] holy conversation and godliness,

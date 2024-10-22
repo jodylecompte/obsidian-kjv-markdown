@@ -1,0 +1,3 @@
+# 2 Chronicles 11:12
+
+And in every several city [he put] shields and spears, and made them exceeding strong, having Judah and Benjamin on his side.

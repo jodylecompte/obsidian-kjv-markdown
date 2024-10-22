@@ -1,0 +1,3 @@
+# Genesis 19:27
+
+And Abraham gat up early in the morning to the place where he stood before the LORD:

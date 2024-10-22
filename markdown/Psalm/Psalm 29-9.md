@@ -1,0 +1,3 @@
+# Psalm 29:9
+
+The voice of the LORD maketh the hinds to calve, and discovereth the forests: and in his temple doth every one speak of [his] glory.

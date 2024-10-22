@@ -1,0 +1,3 @@
+# Ephesians 4:19
+
+Who being past feeling have given themselves over unto lasciviousness, to work all uncleanness with greediness.

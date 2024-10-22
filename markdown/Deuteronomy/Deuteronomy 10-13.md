@@ -1,0 +1,3 @@
+# Deuteronomy 10:13
+
+To keep the commandments of the LORD, and his statutes, which I command thee this day for thy good?

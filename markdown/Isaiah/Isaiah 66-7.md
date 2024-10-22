@@ -1,0 +1,3 @@
+# Isaiah 66:7
+
+Before she travailed, she brought forth; before her pain came, she was delivered of a man child.

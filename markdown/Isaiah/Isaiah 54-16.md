@@ -1,0 +1,3 @@
+# Isaiah 54:16
+
+Behold, I have created the smith that bloweth the coals in the fire, and that bringeth forth an instrument for his work; and I have created the waster to destroy.

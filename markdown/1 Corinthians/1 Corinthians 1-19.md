@@ -1,0 +1,3 @@
+# 1 Corinthians 1:19
+
+For it is written, I will destroy the wisdom of the wise, and will bring to nothing the understanding of the prudent.

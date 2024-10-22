@@ -1,0 +1,3 @@
+# Ezekiel 3:12
+
+Then the spirit took me up, and I heard behind me a voice of a great rushing, [saying], Blessed [be] the glory of the LORD from his place.

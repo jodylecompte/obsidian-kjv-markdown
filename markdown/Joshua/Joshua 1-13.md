@@ -1,0 +1,3 @@
+# Joshua 1:13
+
+Remember the word which Moses the servant of the LORD commanded you, saying, The LORD your God hath given you rest, and hath given you this land.

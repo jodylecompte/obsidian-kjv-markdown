@@ -1,0 +1,3 @@
+# Proverbs 16:15
+
+In the light of the king’s countenance [is] life; and his favour [is] as a cloud of the latter rain.

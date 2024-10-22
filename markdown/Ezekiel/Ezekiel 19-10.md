@@ -1,0 +1,3 @@
+# Ezekiel 19:10
+
+Thy mother [is] like a vine in thy blood, planted by the waters: she was fruitful and full of branches by reason of many waters.

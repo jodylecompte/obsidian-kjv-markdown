@@ -1,0 +1,3 @@
+# Joshua 2:21
+
+And she said, According unto your words, so [be] it. And she sent them away, and they departed: and she bound the scarlet line in the window.

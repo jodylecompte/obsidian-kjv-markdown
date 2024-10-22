@@ -1,0 +1,3 @@
+# Titus 1:7
+
+For a bishop must be blameless, as the steward of God; not selfwilled, not soon angry, not given to wine, no striker, not given to filthy lucre;

@@ -1,0 +1,3 @@
+# John 4:25
+
+The woman saith unto him, I know that Messias cometh, which is called Christ: when he is come, he will tell us all things.

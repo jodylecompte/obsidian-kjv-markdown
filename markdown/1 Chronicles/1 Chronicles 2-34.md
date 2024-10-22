@@ -1,0 +1,3 @@
+# 1 Chronicles 2:34
+
+Now Sheshan had no sons, but daughters. And Sheshan had a servant, an Egyptian, whose name [was] Jarha.

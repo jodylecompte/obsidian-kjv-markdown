@@ -1,0 +1,3 @@
+# 2 Chronicles 30:3
+
+For they could not keep it at that time, because the priests had not sanctified themselves sufficiently, neither had the people gathered themselves together to Jerusalem.

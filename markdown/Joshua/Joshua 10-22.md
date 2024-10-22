@@ -1,0 +1,3 @@
+# Joshua 10:22
+
+Then said Joshua, Open the mouth of the cave, and bring out those five kings unto me out of the cave.

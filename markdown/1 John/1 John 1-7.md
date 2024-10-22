@@ -1,0 +1,3 @@
+# 1 John 1:7
+
+But if we walk in the light, as he is in the light, we have fellowship one with another, and the blood of Jesus Christ his Son cleanseth us from all sin.

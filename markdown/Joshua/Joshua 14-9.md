@@ -1,0 +1,3 @@
+# Joshua 14:9
+
+And Moses sware on that day, saying, Surely the land whereon thy feet have trodden shall be thine inheritance, and thy children’s for ever, because thou hast wholly followed the LORD my God.

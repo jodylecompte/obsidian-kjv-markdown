@@ -1,0 +1,3 @@
+# Psalm 34:7
+
+The angel of the LORD encampeth round about them that fear him, and delivereth them.

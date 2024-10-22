@@ -1,0 +1,3 @@
+# Joshua 17:5
+
+And there fell ten portions to Manasseh, beside the land of Gilead and Bashan, which [were] on the other side Jordan;

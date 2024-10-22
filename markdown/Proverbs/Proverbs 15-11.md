@@ -1,0 +1,3 @@
+# Proverbs 15:11
+
+Hell and destruction [are] before the LORD: how much more then the hearts of the children of men?

@@ -1,0 +1,3 @@
+# Acts 5:27
+
+And when they had brought them, they set [them] before the council: and the high priest asked them,

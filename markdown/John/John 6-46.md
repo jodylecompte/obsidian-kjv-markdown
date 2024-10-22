@@ -1,0 +1,3 @@
+# John 6:46
+
+Not that any man hath seen the Father, save he which is of God, he hath seen the Father.

@@ -1,0 +1,3 @@
+# Psalm 94:3
+
+LORD, how long shall the wicked, how long shall the wicked triumph?

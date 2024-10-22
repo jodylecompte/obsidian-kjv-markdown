@@ -1,0 +1,3 @@
+# Psalm 90:11
+
+Who knoweth the power of thine anger? even according to thy fear, [so is] thy wrath.

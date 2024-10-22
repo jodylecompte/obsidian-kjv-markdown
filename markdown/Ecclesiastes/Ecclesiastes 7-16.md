@@ -1,0 +1,3 @@
+# Ecclesiastes 7:16
+
+Be not righteous over much; neither make thyself over wise: why shouldest thou destroy thyself?

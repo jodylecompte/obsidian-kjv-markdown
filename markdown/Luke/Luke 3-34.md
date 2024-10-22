@@ -1,0 +1,3 @@
+# Luke 3:34
+
+Which was [the son] of Jacob, which was [the son] of Isaac, which was [the son] of Abraham, which was [the son] of Thara, which was [the son] of Nachor,

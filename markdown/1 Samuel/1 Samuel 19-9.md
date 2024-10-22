@@ -1,0 +1,3 @@
+# 1 Samuel 19:9
+
+And the evil spirit from the LORD was upon Saul, as he sat in his house with his javelin in his hand: and David played with [his] hand.

@@ -1,0 +1,3 @@
+# 1 Samuel 24:21
+
+Swear now therefore unto me by the LORD, that thou wilt not cut off my seed after me, and that thou wilt not destroy my name out of my father’s house.

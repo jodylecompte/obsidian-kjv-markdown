@@ -1,0 +1,3 @@
+# 2 Timothy 2:22
+
+Flee also youthful lusts: but follow righteousness, faith, charity, peace, with them that call on the Lord out of a pure heart.

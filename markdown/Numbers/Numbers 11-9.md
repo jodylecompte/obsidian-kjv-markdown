@@ -1,0 +1,3 @@
+# Numbers 11:9
+
+And when the dew fell upon the camp in the night, the manna fell upon it.

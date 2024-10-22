@@ -1,0 +1,3 @@
+# Daniel 2:47
+
+The king answered unto Daniel, and said, Of a truth [it is], that your God [is] a God of gods, and a Lord of kings, and a revealer of secrets, seeing thou couldest reveal this secret.

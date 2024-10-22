@@ -1,0 +1,3 @@
+# Esther 1:2
+
+[That] in those days, when the king Ahasuerus sat on the throne of his kingdom, which [was] in Shushan the palace,

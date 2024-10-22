@@ -1,0 +1,3 @@
+# Exodus 34:22
+
+And thou shalt observe the feast of weeks, of the firstfruits of wheat harvest, and the feast of ingathering at the year’s end.

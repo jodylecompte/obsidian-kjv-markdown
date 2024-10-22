@@ -1,0 +1,3 @@
+# Ezekiel 18:22
+
+All his transgressions that he hath committed, they shall not be mentioned unto him: in his righteousness that he hath done he shall live.

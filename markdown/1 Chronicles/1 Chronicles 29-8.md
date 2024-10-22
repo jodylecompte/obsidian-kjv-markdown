@@ -1,0 +1,3 @@
+# 1 Chronicles 29:8
+
+And they with whom [precious] stones were found gave [them] to the treasure of the house of the LORD, by the hand of Jehiel the Gershonite.

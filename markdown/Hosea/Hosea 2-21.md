@@ -1,0 +1,3 @@
+# Hosea 2:21
+
+And it shall come to pass in that day, I will hear, saith the LORD, I will hear the heavens, and they shall hear the earth;

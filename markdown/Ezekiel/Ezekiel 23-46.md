@@ -1,0 +1,3 @@
+# Ezekiel 23:46
+
+For thus saith the Lord GOD; I will bring up a company upon them, and will give them to be removed and spoiled.

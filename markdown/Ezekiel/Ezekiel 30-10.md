@@ -1,0 +1,3 @@
+# Ezekiel 30:10
+
+Thus saith the Lord GOD; I will also make the multitude of Egypt to cease by the hand of Nebuchadrezzar king of Babylon.

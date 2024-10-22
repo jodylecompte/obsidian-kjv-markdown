@@ -1,0 +1,3 @@
+# Isaiah 1:30
+
+For ye shall be as an oak whose leaf fadeth, and as a garden that hath no water.

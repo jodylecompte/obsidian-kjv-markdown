@@ -1,0 +1,3 @@
+# Psalm 68:35
+
+O God, [thou art] terrible out of thy holy places: the God of Israel [is] he that giveth strength and power unto [his] people. Blessed [be] God.

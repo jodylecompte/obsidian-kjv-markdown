@@ -1,0 +1,3 @@
+# Psalm 2:2
+
+The kings of the earth set themselves, and the rulers take counsel together, against the LORD, and against his anointed, [saying],

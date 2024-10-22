@@ -1,0 +1,3 @@
+# 2 Kings 12:2
+
+And Jehoash did [that which was] right in the sight of the LORD all his days wherein Jehoiada the priest instructed him.

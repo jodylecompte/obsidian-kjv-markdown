@@ -1,0 +1,3 @@
+# Mark 9:50
+
+Salt [is] good: but if the salt have lost his saltness, wherewith will ye season it? Have salt in yourselves, and have peace one with another.

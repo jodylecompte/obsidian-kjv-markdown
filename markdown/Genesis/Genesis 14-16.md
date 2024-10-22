@@ -1,0 +1,3 @@
+# Genesis 14:16
+
+And he brought back all the goods, and also brought again his brother Lot, and his goods, and the women also, and the people.

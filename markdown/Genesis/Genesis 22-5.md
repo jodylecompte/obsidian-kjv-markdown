@@ -1,0 +1,3 @@
+# Genesis 22:5
+
+And Abraham said unto his young men, Abide ye here with the ass; and I and the lad will go yonder and worship, and come again to you.

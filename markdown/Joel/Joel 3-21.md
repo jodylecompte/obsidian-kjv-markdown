@@ -1,0 +1,3 @@
+# Joel 3:21
+
+For I will cleanse their blood [that] I have not cleansed: for the LORD dwelleth in Zion.

@@ -1,0 +1,3 @@
+# Isaiah 43:4
+
+Since thou wast precious in my sight, thou hast been honourable, and I have loved thee: therefore will I give men for thee, and people for thy life.

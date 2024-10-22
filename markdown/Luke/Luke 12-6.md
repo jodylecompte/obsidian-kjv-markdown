@@ -1,0 +1,3 @@
+# Luke 12:6
+
+Are not five sparrows sold for two farthings, and not one of them is forgotten before God?

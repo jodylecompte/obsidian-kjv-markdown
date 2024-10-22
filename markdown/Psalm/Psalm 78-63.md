@@ -1,0 +1,3 @@
+# Psalm 78:63
+
+The fire consumed their young men; and their maidens were not given to marriage.

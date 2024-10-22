@@ -1,0 +1,3 @@
+# Philippians 1:11
+
+Being filled with the fruits of righteousness, which are by Jesus Christ, unto the glory and praise of God.

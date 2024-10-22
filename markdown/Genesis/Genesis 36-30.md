@@ -1,0 +1,3 @@
+# Genesis 36:30
+
+Duke Dishon, duke Ezer, duke Dishan: these [are] the dukes [that came] of Hori, among their dukes in the land of Seir.

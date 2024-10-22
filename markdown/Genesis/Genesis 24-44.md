@@ -1,0 +1,3 @@
+# Genesis 24:44
+
+And she say to me, Both drink thou, and I will also draw for thy camels: [let] the same [be] the woman whom the LORD hath appointed out for my master’s son.

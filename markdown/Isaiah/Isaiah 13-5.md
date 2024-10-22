@@ -1,0 +1,3 @@
+# Isaiah 13:5
+
+They come from a far country, from the end of heaven, [even] the LORD, and the weapons of his indignation, to destroy the whole land.

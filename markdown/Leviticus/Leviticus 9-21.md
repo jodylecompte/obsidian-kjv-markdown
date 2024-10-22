@@ -1,0 +1,3 @@
+# Leviticus 9:21
+
+And the breasts and the right shoulder Aaron waved [for] a wave offering before the LORD; as Moses commanded.

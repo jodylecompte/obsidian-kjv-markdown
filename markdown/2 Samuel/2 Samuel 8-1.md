@@ -1,0 +1,3 @@
+# 2 Samuel 8:1
+
+And after this it came to pass, that David smote the Philistines, and subdued them: and David took Methegammah out of the hand of the Philistines.

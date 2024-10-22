@@ -1,0 +1,3 @@
+# Psalm 48:5
+
+They saw [it, and] so they marvelled; they were troubled, [and] hasted away.

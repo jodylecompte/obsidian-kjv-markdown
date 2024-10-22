@@ -1,0 +1,3 @@
+# Luke 16:4
+
+I am resolved what to do, that, when I am put out of the stewardship, they may receive me into their houses.

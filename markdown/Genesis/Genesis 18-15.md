@@ -1,0 +1,3 @@
+# Genesis 18:15
+
+Then Sarah denied, saying, I laughed not; for she was afraid. And he said, Nay; but thou didst laugh.

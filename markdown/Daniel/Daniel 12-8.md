@@ -1,0 +1,3 @@
+# Daniel 12:8
+
+And I heard, but I understood not: then said I, O my Lord, what [shall be] the end of these [things]?

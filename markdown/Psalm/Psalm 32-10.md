@@ -1,0 +1,3 @@
+# Psalm 32:10
+
+Many sorrows [shall be] to the wicked: but he that trusteth in the LORD, mercy shall compass him about.

@@ -1,0 +1,3 @@
+# Exodus 21:14
+
+But if a man come presumptuously upon his neighbour, to slay him with guile; thou shalt take him from mine altar, that he may die.

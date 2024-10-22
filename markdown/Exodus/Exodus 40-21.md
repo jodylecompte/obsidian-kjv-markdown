@@ -1,0 +1,3 @@
+# Exodus 40:21
+
+And he brought the ark into the tabernacle, and set up the vail of the covering, and covered the ark of the testimony; as the LORD commanded Moses.

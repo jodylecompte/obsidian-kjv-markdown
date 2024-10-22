@@ -1,0 +1,3 @@
+# 1 Chronicles 27:26
+
+And over them that did the work of the field for tillage of the ground [was] Ezri the son of Chelub:

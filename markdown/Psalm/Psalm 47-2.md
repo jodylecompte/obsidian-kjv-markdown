@@ -1,0 +1,3 @@
+# Psalm 47:2
+
+For the LORD most high [is] terrible; [he is] a great King over all the earth.

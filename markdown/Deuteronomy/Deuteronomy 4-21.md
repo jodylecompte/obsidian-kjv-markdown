@@ -1,0 +1,3 @@
+# Deuteronomy 4:21
+
+Furthermore the LORD was angry with me for your sakes, and sware that I should not go over Jordan, and that I should not go in unto that good land, which the LORD thy God giveth thee [for] an inheritance:

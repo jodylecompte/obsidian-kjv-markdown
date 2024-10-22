@@ -1,0 +1,3 @@
+# Romans 11:21
+
+For if God spared not the natural branches, [take heed] lest he also spare not thee.

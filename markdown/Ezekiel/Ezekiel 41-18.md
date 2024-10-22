@@ -1,0 +1,3 @@
+# Ezekiel 41:18
+
+And [it was] made with cherubims and palm trees, so that a palm tree [was] between a cherub and a cherub; and [every] cherub had two faces;

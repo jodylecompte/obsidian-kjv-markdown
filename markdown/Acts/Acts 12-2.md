@@ -1,0 +1,3 @@
+# Acts 12:2
+
+And he killed James the brother of John with the sword.

@@ -1,0 +1,3 @@
+# Isaiah 1:31
+
+And the strong shall be as tow, and the maker of it as a spark, and they shall both burn together, and none shall quench [them].

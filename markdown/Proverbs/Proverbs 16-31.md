@@ -1,0 +1,3 @@
+# Proverbs 16:31
+
+The hoary head [is] a crown of glory, [if] it be found in the way of righteousness.

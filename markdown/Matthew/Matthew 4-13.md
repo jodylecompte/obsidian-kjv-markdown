@@ -1,0 +1,3 @@
+# Matthew 4:13
+
+And leaving Nazareth, he came and dwelt in Capernaum, which is upon the sea coast, in the borders of Zabulon and Nephthalim:

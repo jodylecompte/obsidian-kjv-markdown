@@ -1,0 +1,3 @@
+# Exodus 40:9
+
+And thou shalt take the anointing oil, and anoint the tabernacle, and all that [is] therein, and shalt hallow it, and all the vessels thereof: and it shall be holy.

@@ -1,0 +1,3 @@
+# Leviticus 22:30
+
+On the same day it shall be eaten up; ye shall leave none of it until the morrow: I [am] the LORD.

@@ -1,0 +1,3 @@
+# Romans 9:29
+
+And as Esaias said before, Except the Lord of Sabaoth had left us a seed, we had been as Sodoma, and been made like unto Gomorrha.

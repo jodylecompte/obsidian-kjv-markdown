@@ -1,0 +1,3 @@
+# Romans 10:21
+
+But to Israel he saith, All day long I have stretched forth my hands unto a disobedient and gainsaying people.

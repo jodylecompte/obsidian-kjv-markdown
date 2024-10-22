@@ -1,0 +1,3 @@
+# Genesis 41:18
+
+And, behold, there came up out of the river seven kine, fatfleshed and well favoured; and they fed in a meadow:

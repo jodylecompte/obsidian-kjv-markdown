@@ -1,0 +1,3 @@
+# Acts 6:11
+
+Then they suborned men, which said, We have heard him speak blasphemous words against Moses, and [against] God.

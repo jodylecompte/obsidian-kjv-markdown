@@ -1,0 +1,3 @@
+# Proverbs 26:16
+
+The sluggard [is] wiser in his own conceit than seven men that can render a reason.

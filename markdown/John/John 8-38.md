@@ -1,0 +1,3 @@
+# John 8:38
+
+I speak that which I have seen with my Father: and ye do that which ye have seen with your father.

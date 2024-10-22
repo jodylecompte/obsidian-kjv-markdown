@@ -1,0 +1,3 @@
+# Deuteronomy 19:7
+
+Wherefore I command thee, saying, Thou shalt separate three cities for thee.

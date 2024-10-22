@@ -1,0 +1,3 @@
+# Jeremiah 30:15
+
+Why criest thou for thine affliction? thy sorrow [is] incurable for the multitude of thine iniquity: [because] thy sins were increased, I have done these things unto thee.

@@ -1,0 +1,3 @@
+# Luke 5:14
+
+And he charged him to tell no man: but go, and shew thyself to the priest, and offer for thy cleansing, according as Moses commanded, for a testimony unto them.

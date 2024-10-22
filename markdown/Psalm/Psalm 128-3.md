@@ -1,0 +1,3 @@
+# Psalm 128:3
+
+Thy wife [shall be] as a fruitful vine by the sides of thine house: thy children like olive plants round about thy table.

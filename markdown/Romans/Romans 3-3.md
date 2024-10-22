@@ -1,0 +1,3 @@
+# Romans 3:3
+
+For what if some did not believe? shall their unbelief make the faith of God without effect?

@@ -1,0 +1,3 @@
+# 2 Samuel 6:14
+
+And David danced before the LORD with all [his] might; and David [was] girded with a linen ephod.

@@ -1,0 +1,3 @@
+# Acts 18:9
+
+Then spake the Lord to Paul in the night by a vision, Be not afraid, but speak, and hold not thy peace:

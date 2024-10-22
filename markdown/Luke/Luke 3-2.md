@@ -1,0 +1,3 @@
+# Luke 3:2
+
+Annas and Caiaphas being the high priests, the word of God came unto John the son of Zacharias in the wilderness.

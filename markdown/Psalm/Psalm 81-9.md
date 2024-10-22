@@ -1,0 +1,3 @@
+# Psalm 81:9
+
+There shall no strange god be in thee; neither shalt thou worship any strange god.

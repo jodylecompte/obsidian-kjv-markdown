@@ -1,0 +1,3 @@
+# Ephesians 2:14
+
+For he is our peace, who hath made both one, and hath broken down the middle wall of partition [between us];

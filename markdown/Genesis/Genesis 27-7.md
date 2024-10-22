@@ -1,0 +1,3 @@
+# Genesis 27:7
+
+Bring me venison, and make me savoury meat, that I may eat, and bless thee before the LORD before my death.

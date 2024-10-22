@@ -1,0 +1,3 @@
+# Proverbs 29:6
+
+In the transgression of an evil man [there is] a snare: but the righteous doth sing and rejoice.

@@ -1,0 +1,3 @@
+# 1 Kings 4:20
+
+Judah and Israel [were] many, as the sand which [is] by the sea in multitude, eating and drinking, and making merry.

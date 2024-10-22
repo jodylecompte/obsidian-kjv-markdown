@@ -1,0 +1,3 @@
+# Numbers 13:27
+
+And they told him, and said, We came unto the land whither thou sentest us, and surely it floweth with milk and honey; and this [is] the fruit of it.

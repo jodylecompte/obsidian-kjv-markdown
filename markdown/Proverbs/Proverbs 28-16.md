@@ -1,0 +1,3 @@
+# Proverbs 28:16
+
+The prince that wanteth understanding [is] also a great oppressor: [but] he that hateth covetousness shall prolong [his] days.

@@ -1,0 +1,3 @@
+# Numbers 28:11
+
+And in the beginnings of your months ye shall offer a burnt offering unto the LORD; two young bullocks, and one ram, seven lambs of the first year without spot;

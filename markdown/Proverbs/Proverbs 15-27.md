@@ -1,0 +1,3 @@
+# Proverbs 15:27
+
+He that is greedy of gain troubleth his own house; but he that hateth gifts shall live.

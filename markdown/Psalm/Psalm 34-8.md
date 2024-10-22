@@ -1,0 +1,3 @@
+# Psalm 34:8
+
+O taste and see that the LORD [is] good: blessed [is] the man [that] trusteth in him.

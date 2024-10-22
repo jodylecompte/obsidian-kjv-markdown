@@ -1,0 +1,3 @@
+# Daniel 6:3
+
+Then this Daniel was preferred above the presidents and princes, because an excellent spirit [was] in him; and the king thought to set him over the whole realm.

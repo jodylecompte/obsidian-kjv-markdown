@@ -1,0 +1,3 @@
+# Revelation 22:7
+
+Behold, I come quickly: blessed [is] he that keepeth the sayings of the prophecy of this book.

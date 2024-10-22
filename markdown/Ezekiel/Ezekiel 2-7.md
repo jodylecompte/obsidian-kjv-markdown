@@ -1,0 +1,3 @@
+# Ezekiel 2:7
+
+And thou shalt speak my words unto them, whether they will hear, or whether they will forbear: for they [are] most rebellious.

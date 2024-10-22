@@ -1,0 +1,3 @@
+# Numbers 13:21
+
+So they went up, and searched the land from the wilderness of Zin unto Rehob, as men come to Hamath.

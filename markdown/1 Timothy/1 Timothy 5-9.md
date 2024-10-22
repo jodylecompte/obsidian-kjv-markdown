@@ -1,0 +1,3 @@
+# 1 Timothy 5:9
+
+Let not a widow be taken into the number under threescore years old, having been the wife of one man,

@@ -1,0 +1,3 @@
+# Jeremiah 6:26
+
+O daughter of my people, gird [thee] with sackcloth, and wallow thyself in ashes: make thee mourning, [as for] an only son, most bitter lamentation: for the spoiler shall suddenly come upon us.

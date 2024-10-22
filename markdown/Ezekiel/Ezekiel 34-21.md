@@ -1,0 +1,3 @@
+# Ezekiel 34:21
+
+Because ye have thrust with side and with shoulder, and pushed all the diseased with your horns, till ye have scattered them abroad;

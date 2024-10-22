@@ -1,0 +1,3 @@
+# Luke 3:12
+
+Then came also publicans to be baptized, and said unto him, Master, what shall we do?

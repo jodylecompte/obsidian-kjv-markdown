@@ -1,0 +1,3 @@
+# 2 Samuel 19:27
+
+And he hath slandered thy servant unto my lord the king; but my lord the king [is] as an angel of God: do therefore [what is] good in thine eyes.

@@ -1,0 +1,3 @@
+# Hosea 12:12
+
+And Jacob fled into the country of Syria, and Israel served for a wife, and for a wife he kept [sheep].

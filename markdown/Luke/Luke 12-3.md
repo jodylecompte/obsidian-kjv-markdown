@@ -1,0 +1,3 @@
+# Luke 12:3
+
+Therefore whatsoever ye have spoken in darkness shall be heard in the light; and that which ye have spoken in the ear in closets shall be proclaimed upon the housetops.

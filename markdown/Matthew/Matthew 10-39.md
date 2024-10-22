@@ -1,0 +1,3 @@
+# Matthew 10:39
+
+He that findeth his life shall lose it: and he that loseth his life for my sake shall find it.

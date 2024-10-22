@@ -1,0 +1,3 @@
+# Leviticus 25:7
+
+And for thy cattle, and for the beast that [are] in thy land, shall all the increase thereof be meat.

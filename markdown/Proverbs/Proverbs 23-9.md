@@ -1,0 +1,3 @@
+# Proverbs 23:9
+
+Speak not in the ears of a fool: for he will despise the wisdom of thy words.

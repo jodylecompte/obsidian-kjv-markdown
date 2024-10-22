@@ -1,0 +1,3 @@
+# Exodus 5:15
+
+Then the officers of the children of Israel came and cried unto Pharaoh, saying, Wherefore dealest thou thus with thy servants?

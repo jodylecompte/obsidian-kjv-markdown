@@ -1,0 +1,3 @@
+# James 1:23
+
+For if any be a hearer of the word, and not a doer, he is like unto a man beholding his natural face in a glass:

@@ -1,0 +1,3 @@
+# Isaiah 42:8
+
+I [am] the LORD: that [is] my name: and my glory will I not give to another, neither my praise to graven images.

@@ -1,0 +1,3 @@
+# Isaiah 13:17
+
+Behold, I will stir up the Medes against them, which shall not regard silver; and [as for] gold, they shall not delight in it.

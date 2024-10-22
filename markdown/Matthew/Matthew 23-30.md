@@ -1,0 +1,3 @@
+# Matthew 23:30
+
+And say, If we had been in the days of our fathers, we would not have been partakers with them in the blood of the prophets.

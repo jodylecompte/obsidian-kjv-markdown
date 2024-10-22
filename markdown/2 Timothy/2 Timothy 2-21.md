@@ -1,0 +1,3 @@
+# 2 Timothy 2:21
+
+If a man therefore purge himself from these, he shall be a vessel unto honour, sanctified, and meet for the master’s use, [and] prepared unto every good work.

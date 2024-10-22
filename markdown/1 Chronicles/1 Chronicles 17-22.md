@@ -1,0 +1,3 @@
+# 1 Chronicles 17:22
+
+For thy people Israel didst thou make thine own people for ever; and thou, LORD, becamest their God.

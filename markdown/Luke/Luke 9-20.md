@@ -1,0 +1,3 @@
+# Luke 9:20
+
+He said unto them, But whom say ye that I am? Peter answering said, The Christ of God.

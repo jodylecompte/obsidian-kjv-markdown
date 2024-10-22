@@ -1,0 +1,3 @@
+# 1 Chronicles 16:41
+
+And with them Heman and Jeduthun, and the rest that were chosen, who were expressed by name, to give thanks to the LORD, because his mercy [endureth] for ever;

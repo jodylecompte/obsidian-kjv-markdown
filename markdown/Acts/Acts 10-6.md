@@ -1,0 +1,3 @@
+# Acts 10:6
+
+He lodgeth with one Simon a tanner, whose house is by the sea side: he shall tell thee what thou oughtest to do.

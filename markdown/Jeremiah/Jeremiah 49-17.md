@@ -1,0 +1,3 @@
+# Jeremiah 49:17
+
+Also Edom shall be a desolation: every one that goeth by it shall be astonished, and shall hiss at all the plagues thereof.

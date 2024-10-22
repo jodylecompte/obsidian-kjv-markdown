@@ -1,0 +1,3 @@
+# Philippians 1:22
+
+But if I live in the flesh, this [is] the fruit of my labour: yet what I shall choose I wot not.

@@ -1,0 +1,3 @@
+# Joshua 11:10
+
+And Joshua at that time turned back, and took Hazor, and smote the king thereof with the sword: for Hazor beforetime was the head of all those kingdoms.

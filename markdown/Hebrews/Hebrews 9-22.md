@@ -1,0 +1,3 @@
+# Hebrews 9:22
+
+And almost all things are by the law purged with blood; and without shedding of blood is no remission.

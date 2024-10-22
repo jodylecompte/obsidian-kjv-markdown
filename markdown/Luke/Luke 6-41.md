@@ -1,0 +1,3 @@
+# Luke 6:41
+
+And why beholdest thou the mote that is in thy brother’s eye, but perceivest not the beam that is in thine own eye?

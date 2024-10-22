@@ -1,0 +1,3 @@
+# Ezekiel 17:17
+
+Neither shall Pharaoh with [his] mighty army and great company make for him in the war, by casting up mounts, and building forts, to cut off many persons:

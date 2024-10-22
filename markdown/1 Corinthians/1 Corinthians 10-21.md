@@ -1,0 +1,3 @@
+# 1 Corinthians 10:21
+
+Ye cannot drink the cup of the Lord, and the cup of devils: ye cannot be partakers of the Lord’s table, and of the table of devils.

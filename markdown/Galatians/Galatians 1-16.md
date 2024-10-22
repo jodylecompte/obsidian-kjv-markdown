@@ -1,0 +1,3 @@
+# Galatians 1:16
+
+To reveal his Son in me, that I might preach him among the heathen; immediately I conferred not with flesh and blood:

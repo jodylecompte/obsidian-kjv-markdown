@@ -1,0 +1,3 @@
+# Numbers 13:4
+
+And these [were] their names: of the tribe of Reuben, Shammua the son of Zaccur.

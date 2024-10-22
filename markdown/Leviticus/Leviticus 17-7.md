@@ -1,0 +1,3 @@
+# Leviticus 17:7
+
+And they shall no more offer their sacrifices unto devils, after whom they have gone a whoring. This shall be a statute for ever unto them throughout their generations.

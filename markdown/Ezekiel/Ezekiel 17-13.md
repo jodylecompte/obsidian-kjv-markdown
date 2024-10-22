@@ -1,0 +1,3 @@
+# Ezekiel 17:13
+
+And hath taken of the king’s seed, and made a covenant with him, and hath taken an oath of him: he hath also taken the mighty of the land:

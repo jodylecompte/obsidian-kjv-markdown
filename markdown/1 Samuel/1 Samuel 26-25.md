@@ -1,0 +1,3 @@
+# 1 Samuel 26:25
+
+Then Saul said to David, Blessed [be] thou, my son David: thou shalt both do great [things], and also shalt still prevail. So David went on his way, and Saul returned to his place.

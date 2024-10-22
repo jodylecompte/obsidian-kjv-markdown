@@ -1,0 +1,3 @@
+# Proverbs 16:7
+
+When a man’s ways please the LORD, he maketh even his enemies to be at peace with him.

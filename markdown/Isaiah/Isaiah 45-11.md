@@ -1,0 +1,3 @@
+# Isaiah 45:11
+
+Thus saith the LORD, the Holy One of Israel, and his Maker, Ask me of things to come concerning my sons, and concerning the work of my hands command ye me.

@@ -1,0 +1,3 @@
+# Leviticus 25:32
+
+Notwithstanding the cities of the Levites, [and] the houses of the cities of their possession, may the Levites redeem at any time.

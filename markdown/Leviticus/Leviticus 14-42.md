@@ -1,0 +1,3 @@
+# Leviticus 14:42
+
+And they shall take other stones, and put [them] in the place of those stones; and he shall take other morter, and shall plaister the house.

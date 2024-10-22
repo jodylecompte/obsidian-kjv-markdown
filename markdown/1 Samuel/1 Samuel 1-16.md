@@ -1,0 +1,3 @@
+# 1 Samuel 1:16
+
+Count not thine handmaid for a daughter of Belial: for out of the abundance of my complaint and grief have I spoken hitherto.

@@ -1,0 +1,3 @@
+# James 2:8
+
+If ye fulfil the royal law according to the scripture, Thou shalt love thy neighbour as thyself, ye do well:

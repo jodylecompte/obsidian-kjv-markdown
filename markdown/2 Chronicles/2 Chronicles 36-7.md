@@ -1,0 +1,3 @@
+# 2 Chronicles 36:7
+
+Nebuchadnezzar also carried of the vessels of the house of the LORD to Babylon, and put them in his temple at Babylon.

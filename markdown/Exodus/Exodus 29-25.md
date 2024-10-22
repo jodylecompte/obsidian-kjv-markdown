@@ -1,0 +1,3 @@
+# Exodus 29:25
+
+And thou shalt receive them of their hands, and burn [them] upon the altar for a burnt offering, for a sweet savour before the LORD: it [is] an offering made by fire unto the LORD.

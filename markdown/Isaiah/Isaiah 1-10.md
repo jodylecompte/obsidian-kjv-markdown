@@ -1,0 +1,3 @@
+# Isaiah 1:10
+
+Hear the word of the LORD, ye rulers of Sodom; give ear unto the law of our God, ye people of Gomorrah.

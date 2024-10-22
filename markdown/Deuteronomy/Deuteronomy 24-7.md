@@ -1,0 +1,3 @@
+# Deuteronomy 24:7
+
+If a man be found stealing any of his brethren of the children of Israel, and maketh merchandise of him, or selleth him; then that thief shall die; and thou shalt put evil away from among you.

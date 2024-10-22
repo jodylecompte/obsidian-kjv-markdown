@@ -1,0 +1,3 @@
+# Matthew 14:31
+
+And immediately Jesus stretched forth [his] hand, and caught him, and said unto him, O thou of little faith, wherefore didst thou doubt?

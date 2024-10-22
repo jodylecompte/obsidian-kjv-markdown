@@ -1,0 +1,3 @@
+# Psalm 125:3
+
+For the rod of the wicked shall not rest upon the lot of the righteous; lest the righteous put forth their hands unto iniquity.

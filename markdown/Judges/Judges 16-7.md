@@ -1,0 +1,3 @@
+# Judges 16:7
+
+And Samson said unto her, If they bind me with seven green withs that were never dried, then shall I be weak, and be as another man.

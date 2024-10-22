@@ -1,0 +1,3 @@
+# Daniel 11:1
+
+Also I in the first year of Darius the Mede, [even] I, stood to confirm and to strengthen him.

@@ -1,0 +1,3 @@
+# 1 Kings 3:7
+
+And now, O LORD my God, thou hast made thy servant king instead of David my father: and I [am but] a little child: I know not [how] to go out or come in.

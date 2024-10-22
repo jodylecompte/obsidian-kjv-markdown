@@ -1,0 +1,3 @@
+# 1 Kings 8:9
+
+[There was] nothing in the ark save the two tables of stone, which Moses put there at Horeb, when the LORD made [a covenant] with the children of Israel, when they came out of the land of Egypt.

@@ -1,0 +1,3 @@
+# 2 Chronicles 21:5
+
+Jehoram [was] thirty and two years old when he began to reign, and he reigned eight years in Jerusalem.

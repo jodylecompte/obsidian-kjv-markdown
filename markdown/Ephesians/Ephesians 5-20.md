@@ -1,0 +1,3 @@
+# Ephesians 5:20
+
+Giving thanks always for all things unto God and the Father in the name of our Lord Jesus Christ;

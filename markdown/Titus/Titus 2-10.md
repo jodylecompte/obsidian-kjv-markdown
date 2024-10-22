@@ -1,0 +1,3 @@
+# Titus 2:10
+
+Not purloining, but shewing all good fidelity; that they may adorn the doctrine of God our Saviour in all things.

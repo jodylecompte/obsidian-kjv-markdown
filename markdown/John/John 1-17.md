@@ -1,0 +1,3 @@
+# John 1:17
+
+For the law was given by Moses, [but] grace and truth came by Jesus Christ.

@@ -1,0 +1,3 @@
+# Deuteronomy 27:14
+
+And the Levites shall speak, and say unto all the men of Israel with a loud voice,

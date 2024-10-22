@@ -1,0 +1,3 @@
+# Romans 8:14
+
+For as many as are led by the Spirit of God, they are the sons of God.

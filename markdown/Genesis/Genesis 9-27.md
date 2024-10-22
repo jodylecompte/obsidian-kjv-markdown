@@ -1,0 +1,3 @@
+# Genesis 9:27
+
+God shall enlarge Japheth, and he shall dwell in the tents of Shem; and Canaan shall be his servant.

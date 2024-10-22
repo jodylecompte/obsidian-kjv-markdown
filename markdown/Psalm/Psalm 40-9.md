@@ -1,0 +1,3 @@
+# Psalm 40:9
+
+I have preached righteousness in the great congregation: lo, I have not refrained my lips, O LORD, thou knowest.

@@ -1,0 +1,3 @@
+# Judges 1:20
+
+And they gave Hebron unto Caleb, as Moses said: and he expelled thence the three sons of Anak.

@@ -1,0 +1,3 @@
+# 1 Samuel 28:3
+
+Now Samuel was dead, and all Israel had lamented him, and buried him in Ramah, even in his own city. And Saul had put away those that had familiar spirits, and the wizards, out of the land.

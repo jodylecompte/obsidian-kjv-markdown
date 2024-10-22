@@ -1,0 +1,3 @@
+# Exodus 40:24
+
+And he put the candlestick in the tent of the congregation, over against the table, on the side of the tabernacle southward.

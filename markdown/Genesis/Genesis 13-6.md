@@ -1,0 +1,3 @@
+# Genesis 13:6
+
+And the land was not able to bear them, that they might dwell together: for their substance was great, so that they could not dwell together.

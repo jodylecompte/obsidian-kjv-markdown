@@ -1,0 +1,3 @@
+# 2 Corinthians 10:15
+
+Not boasting of things without [our] measure, [that is], of other men’s labours; but having hope, when your faith is increased, that we shall be enlarged by you according to our rule abundantly,

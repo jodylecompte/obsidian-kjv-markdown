@@ -1,0 +1,3 @@
+# Matthew 6:20
+
+But lay up for yourselves treasures in heaven, where neither moth nor rust doth corrupt, and where thieves do not break through nor steal:

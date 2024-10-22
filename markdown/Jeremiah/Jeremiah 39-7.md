@@ -1,0 +1,3 @@
+# Jeremiah 39:7
+
+Moreover he put out Zedekiah’s eyes, and bound him with chains, to carry him to Babylon.

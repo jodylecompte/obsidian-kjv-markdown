@@ -1,0 +1,3 @@
+# Galatians 1:8
+
+But though we, or an angel from heaven, preach any other gospel unto you than that which we have preached unto you, let him be accursed.

@@ -1,0 +1,3 @@
+# Revelation 18:24
+
+And in her was found the blood of prophets, and of saints, and of all that were slain upon the earth.

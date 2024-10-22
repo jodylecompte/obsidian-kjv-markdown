@@ -1,0 +1,3 @@
+# Daniel 4:1
+
+Nebuchadnezzar the king, unto all people, nations, and languages, that dwell in all the earth; Peace be multiplied unto you.

@@ -1,0 +1,3 @@
+# 1 Corinthians 15:45
+
+And so it is written, The first man Adam was made a living soul; the last Adam [was made] a quickening spirit.

@@ -1,0 +1,3 @@
+# Nehemiah 11:21
+
+But the Nethinims dwelt in Ophel: and Ziha and Gispa [were] over the Nethinims.

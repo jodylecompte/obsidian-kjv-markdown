@@ -1,0 +1,3 @@
+# 2 Chronicles 30:10
+
+So the posts passed from city to city through the country of Ephraim and Manasseh even unto Zebulun: but they laughed them to scorn, and mocked them.

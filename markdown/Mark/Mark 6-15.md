@@ -1,0 +1,3 @@
+# Mark 6:15
+
+Others said, That it is Elias. And others said, That it is a prophet, or as one of the prophets.

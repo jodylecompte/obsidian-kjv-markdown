@@ -1,0 +1,3 @@
+# Proverbs 10:5
+
+He that gathereth in summer [is] a wise son: [but] he that sleepeth in harvest [is] a son that causeth shame.

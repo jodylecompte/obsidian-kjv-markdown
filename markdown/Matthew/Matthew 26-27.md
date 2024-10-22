@@ -1,0 +1,3 @@
+# Matthew 26:27
+
+And he took the cup, and gave thanks, and gave [it] to them, saying, Drink ye all of it;

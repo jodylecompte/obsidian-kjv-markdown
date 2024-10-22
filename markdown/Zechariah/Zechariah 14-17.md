@@ -1,0 +1,3 @@
+# Zechariah 14:17
+
+And it shall be, [that] whoso will not come up of [all] the families of the earth unto Jerusalem to worship the King, the LORD of hosts, even upon them shall be no rain.

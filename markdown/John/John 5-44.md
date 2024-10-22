@@ -1,0 +1,3 @@
+# John 5:44
+
+How can ye believe, which receive honour one of another, and seek not the honour that [cometh] from God only?

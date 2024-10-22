@@ -1,0 +1,3 @@
+# Leviticus 26:23
+
+And if ye will not be reformed by me by these things, but will walk contrary unto me;

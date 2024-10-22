@@ -1,0 +1,3 @@
+# Acts 10:9
+
+On the morrow, as they went on their journey, and drew nigh unto the city, Peter went up upon the housetop to pray about the sixth hour:

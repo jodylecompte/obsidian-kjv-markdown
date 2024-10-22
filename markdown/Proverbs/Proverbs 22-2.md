@@ -1,0 +1,3 @@
+# Proverbs 22:2
+
+The rich and poor meet together: the LORD [is] the maker of them all.

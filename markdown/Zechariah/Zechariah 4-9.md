@@ -1,0 +1,3 @@
+# Zechariah 4:9
+
+The hands of Zerubbabel have laid the foundation of this house; his hands shall also finish it; and thou shalt know that the LORD of hosts hath sent me unto you.

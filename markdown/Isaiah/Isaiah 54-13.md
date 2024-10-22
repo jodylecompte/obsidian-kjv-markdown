@@ -1,0 +1,3 @@
+# Isaiah 54:13
+
+And all thy children [shall be] taught of the LORD; and great [shall be] the peace of thy children.

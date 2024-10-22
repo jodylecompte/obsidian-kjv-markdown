@@ -1,0 +1,3 @@
+# Isaiah 41:8
+
+But thou, Israel, [art] my servant, Jacob whom I have chosen, the seed of Abraham my friend.

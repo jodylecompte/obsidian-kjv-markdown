@@ -1,0 +1,3 @@
+# Daniel 6:1
+
+It pleased Darius to set over the kingdom an hundred and twenty princes, which should be over the whole kingdom;

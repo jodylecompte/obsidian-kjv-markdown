@@ -1,0 +1,3 @@
+# Acts 2:39
+
+For the promise is unto you, and to your children, and to all that are afar off, [even] as many as the Lord our God shall call.

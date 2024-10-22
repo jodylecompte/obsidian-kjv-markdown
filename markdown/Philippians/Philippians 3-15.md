@@ -1,0 +1,3 @@
+# Philippians 3:15
+
+Let us therefore, as many as be perfect, be thus minded: and if in any thing ye be otherwise minded, God shall reveal even this unto you.

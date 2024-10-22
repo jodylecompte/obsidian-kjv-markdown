@@ -1,0 +1,3 @@
+# Ephesians 4:2
+
+With all lowliness and meekness, with longsuffering, forbearing one another in love;

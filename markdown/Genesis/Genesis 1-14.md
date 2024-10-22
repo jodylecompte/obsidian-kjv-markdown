@@ -1,0 +1,3 @@
+# Genesis 1:14
+
+And God said, Let there be lights in the firmament of the heaven to divide the day from the night; and let them be for signs, and for seasons, and for days, and years:

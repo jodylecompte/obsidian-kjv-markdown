@@ -1,0 +1,3 @@
+# 2 Samuel 16:22
+
+So they spread Absalom a tent upon the top of the house; and Absalom went in unto his father’s concubines in the sight of all Israel.

@@ -1,0 +1,3 @@
+# Deuteronomy 1:44
+
+And the Amorites, which dwelt in that mountain, came out against you, and chased you, as bees do, and destroyed you in Seir, [even] unto Hormah.

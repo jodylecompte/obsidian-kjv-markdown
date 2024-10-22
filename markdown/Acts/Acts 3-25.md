@@ -1,0 +1,3 @@
+# Acts 3:25
+
+Ye are the children of the prophets, and of the covenant which God made with our fathers, saying unto Abraham, And in thy seed shall all the kindreds of the earth be blessed.

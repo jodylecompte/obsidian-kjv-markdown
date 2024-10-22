@@ -1,0 +1,3 @@
+# Ezekiel 33:19
+
+But if the wicked turn from his wickedness, and do that which is lawful and right, he shall live thereby.

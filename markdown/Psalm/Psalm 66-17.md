@@ -1,0 +1,3 @@
+# Psalm 66:17
+
+I cried unto him with my mouth, and he was extolled with my tongue.

@@ -1,0 +1,3 @@
+# Numbers 3:26
+
+And the hangings of the court, and the curtain for the door of the court, which [is] by the tabernacle, and by the altar round about, and the cords of it for all the service thereof.

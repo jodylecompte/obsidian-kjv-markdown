@@ -1,0 +1,3 @@
+# 1 Kings 5:4
+
+But now the LORD my God hath given me rest on every side, [so that there is] neither adversary nor evil occurrent.

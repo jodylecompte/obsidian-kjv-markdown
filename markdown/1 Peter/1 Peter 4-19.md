@@ -1,0 +1,3 @@
+# 1 Peter 4:19
+
+Wherefore let them that suffer according to the will of God commit the keeping of their souls [to him] in well doing, as unto a faithful Creator.

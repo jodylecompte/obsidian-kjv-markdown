@@ -1,0 +1,3 @@
+# Exodus 34:32
+
+And afterward all the children of Israel came nigh: and he gave them in commandment all that the LORD had spoken with him in mount Sinai.

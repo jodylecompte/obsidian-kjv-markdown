@@ -1,0 +1,3 @@
+# Ezekiel 7:5
+
+Thus saith the Lord GOD; An evil, an only evil, behold, is come.

@@ -1,0 +1,3 @@
+# Exodus 22:16
+
+And if a man entice a maid that is not betrothed, and lie with her, he shall surely endow her to be his wife.

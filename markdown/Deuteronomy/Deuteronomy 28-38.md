@@ -1,0 +1,3 @@
+# Deuteronomy 28:38
+
+Thou shalt carry much seed out into the field, and shalt gather [but] little in; for the locust shall consume it.

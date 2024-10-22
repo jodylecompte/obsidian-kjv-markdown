@@ -1,0 +1,3 @@
+# Genesis 14:23
+
+That I will not [take] from a thread even to a shoelatchet, and that I will not take any thing that [is] thine, lest thou shouldest say, I have made Abram rich:

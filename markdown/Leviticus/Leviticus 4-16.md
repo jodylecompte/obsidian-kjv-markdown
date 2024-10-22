@@ -1,0 +1,3 @@
+# Leviticus 4:16
+
+And the priest that is anointed shall bring of the bullock’s blood to the tabernacle of the congregation:

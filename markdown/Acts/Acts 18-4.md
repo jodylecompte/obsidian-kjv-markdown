@@ -1,0 +1,3 @@
+# Acts 18:4
+
+And he reasoned in the synagogue every sabbath, and persuaded the Jews and the Greeks.

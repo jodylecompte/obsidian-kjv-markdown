@@ -1,0 +1,3 @@
+# Romans 16:18
+
+For they that are such serve not our Lord Jesus Christ, but their own belly; and by good words and fair speeches deceive the hearts of the simple.

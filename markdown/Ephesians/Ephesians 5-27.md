@@ -1,0 +1,3 @@
+# Ephesians 5:27
+
+That he might present it to himself a glorious church, not having spot, or wrinkle, or any such thing; but that it should be holy and without blemish.

@@ -1,0 +1,3 @@
+# 2 Chronicles 18:30
+
+Now the king of Syria had commanded the captains of the chariots that [were] with him, saying, Fight ye not with small or great, save only with the king of Israel.

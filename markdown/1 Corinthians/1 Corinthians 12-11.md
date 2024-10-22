@@ -1,0 +1,3 @@
+# 1 Corinthians 12:11
+
+But all these worketh that one and the selfsame Spirit, dividing to every man severally as he will.

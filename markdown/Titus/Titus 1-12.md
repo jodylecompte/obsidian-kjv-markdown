@@ -1,0 +1,3 @@
+# Titus 1:12
+
+One of themselves, [even] a prophet of their own, said, The Cretians [are] alway liars, evil beasts, slow bellies.

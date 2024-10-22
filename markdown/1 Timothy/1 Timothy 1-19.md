@@ -1,0 +1,3 @@
+# 1 Timothy 1:19
+
+Holding faith, and a good conscience; which some having put away concerning faith have made shipwreck:

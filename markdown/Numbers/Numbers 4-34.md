@@ -1,0 +1,3 @@
+# Numbers 4:34
+
+And Moses and Aaron and the chief of the congregation numbered the sons of the Kohathites after their families, and after the house of their fathers,

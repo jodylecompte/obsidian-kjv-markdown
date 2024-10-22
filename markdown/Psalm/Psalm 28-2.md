@@ -1,0 +1,3 @@
+# Psalm 28:2
+
+Hear the voice of my supplications, when I cry unto thee, when I lift up my hands toward thy holy oracle.

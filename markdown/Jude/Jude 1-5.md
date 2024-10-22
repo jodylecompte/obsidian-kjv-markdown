@@ -1,0 +1,3 @@
+# Jude 1:5
+
+I will therefore put you in remembrance, though ye once knew this, how that the Lord, having saved the people out of the land of Egypt, afterward destroyed them that believed not.

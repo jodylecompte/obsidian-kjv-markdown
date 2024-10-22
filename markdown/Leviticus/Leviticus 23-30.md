@@ -1,0 +1,3 @@
+# Leviticus 23:30
+
+And whatsoever soul [it be] that doeth any work in that same day, the same soul will I destroy from among his people.

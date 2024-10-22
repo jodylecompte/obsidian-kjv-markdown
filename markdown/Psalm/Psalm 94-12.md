@@ -1,0 +1,3 @@
+# Psalm 94:12
+
+Blessed [is] the man whom thou chastenest, O LORD, and teachest him out of thy law;

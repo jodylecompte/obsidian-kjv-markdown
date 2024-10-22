@@ -1,0 +1,3 @@
+# Judges 5:7
+
+[The inhabitants of] the villages ceased, they ceased in Israel, until that I Deborah arose, that I arose a mother in Israel.

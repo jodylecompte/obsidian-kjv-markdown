@@ -1,0 +1,3 @@
+# Matthew 20:16
+
+So the last shall be first, and the first last: for many be called, but few chosen.

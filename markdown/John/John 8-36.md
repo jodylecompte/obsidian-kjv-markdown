@@ -1,0 +1,3 @@
+# John 8:36
+
+If the Son therefore shall make you free, ye shall be free indeed.

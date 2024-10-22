@@ -1,0 +1,3 @@
+# Luke 3:19
+
+But Herod the tetrarch, being reproved by him for Herodias his brother Philip’s wife, and for all the evils which Herod had done,

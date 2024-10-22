@@ -1,0 +1,3 @@
+# Isaiah 19:4
+
+And the Egyptians will I give over into the hand of a cruel lord; and a fierce king shall rule over them, saith the Lord, the LORD of hosts.

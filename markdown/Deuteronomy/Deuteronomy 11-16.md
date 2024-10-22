@@ -1,0 +1,3 @@
+# Deuteronomy 11:16
+
+Take heed to yourselves, that your heart be not deceived, and ye turn aside, and serve other gods, and worship them;

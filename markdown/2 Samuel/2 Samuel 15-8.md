@@ -1,0 +1,3 @@
+# 2 Samuel 15:8
+
+For thy servant vowed a vow while I abode at Geshur in Syria, saying, If the LORD shall bring me again indeed to Jerusalem, then I will serve the LORD.

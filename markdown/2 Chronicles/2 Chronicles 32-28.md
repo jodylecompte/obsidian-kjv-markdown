@@ -1,0 +1,3 @@
+# 2 Chronicles 32:28
+
+Storehouses also for the increase of corn, and wine, and oil; and stalls for all manner of beasts, and cotes for flocks.

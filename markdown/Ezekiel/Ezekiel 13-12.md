@@ -1,0 +1,3 @@
+# Ezekiel 13:12
+
+Lo, when the wall is fallen, shall it not be said unto you, Where [is] the daubing wherewith ye have daubed [it]?

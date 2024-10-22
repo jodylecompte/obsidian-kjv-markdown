@@ -1,0 +1,3 @@
+# Joshua 17:12
+
+Yet the children of Manasseh could not drive out [the inhabitants of] those cities; but the Canaanites would dwell in that land.

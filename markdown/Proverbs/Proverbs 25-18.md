@@ -1,0 +1,3 @@
+# Proverbs 25:18
+
+A man that beareth false witness against his neighbour [is] a maul, and a sword, and a sharp arrow.

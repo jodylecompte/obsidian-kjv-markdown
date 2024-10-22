@@ -1,0 +1,3 @@
+# Jeremiah 6:9
+
+Thus saith the LORD of hosts, They shall throughly glean the remnant of Israel as a vine: turn back thine hand as a grapegatherer into the baskets.

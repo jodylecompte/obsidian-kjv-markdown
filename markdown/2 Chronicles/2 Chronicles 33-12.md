@@ -1,0 +1,3 @@
+# 2 Chronicles 33:12
+
+And when he was in affliction, he besought the LORD his God, and humbled himself greatly before the God of his fathers,

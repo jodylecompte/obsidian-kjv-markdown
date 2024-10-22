@@ -1,0 +1,3 @@
+# Jeremiah 9:6
+
+Thine habitation [is] in the midst of deceit; through deceit they refuse to know me, saith the LORD.

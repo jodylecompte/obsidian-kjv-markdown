@@ -1,0 +1,3 @@
+# Galatians 3:3
+
+Are ye so foolish? having begun in the Spirit, are ye now made perfect by the flesh?

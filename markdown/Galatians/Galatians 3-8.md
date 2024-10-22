@@ -1,0 +1,3 @@
+# Galatians 3:8
+
+And the scripture, foreseeing that God would justify the heathen through faith, preached before the gospel unto Abraham, [saying], In thee shall all nations be blessed.

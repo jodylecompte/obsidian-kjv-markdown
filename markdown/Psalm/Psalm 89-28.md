@@ -1,0 +1,3 @@
+# Psalm 89:28
+
+My mercy will I keep for him for evermore, and my covenant shall stand fast with him.

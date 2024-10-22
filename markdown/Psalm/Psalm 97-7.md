@@ -1,0 +1,3 @@
+# Psalm 97:7
+
+Confounded be all they that serve graven images, that boast themselves of idols: worship him, all [ye] gods.

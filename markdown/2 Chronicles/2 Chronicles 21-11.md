@@ -1,0 +1,3 @@
+# 2 Chronicles 21:11
+
+Moreover he made high places in the mountains of Judah, and caused the inhabitants of Jerusalem to commit fornication, and compelled Judah [thereto].

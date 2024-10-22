@@ -1,0 +1,3 @@
+# Exodus 40:6
+
+And thou shalt set the altar of the burnt offering before the door of the tabernacle of the tent of the congregation.

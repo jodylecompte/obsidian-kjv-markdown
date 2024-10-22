@@ -1,0 +1,3 @@
+# Haggai 2:9
+
+The glory of this latter house shall be greater than of the former, saith the LORD of hosts: and in this place will I give peace, saith the LORD of hosts.

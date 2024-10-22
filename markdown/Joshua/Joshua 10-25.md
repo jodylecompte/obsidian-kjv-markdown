@@ -1,0 +1,3 @@
+# Joshua 10:25
+
+And Joshua said unto them, Fear not, nor be dismayed, be strong and of good courage: for thus shall the LORD do to all your enemies against whom ye fight.

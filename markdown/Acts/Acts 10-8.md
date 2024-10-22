@@ -1,0 +1,3 @@
+# Acts 10:8
+
+And when he had declared all [these] things unto them, he sent them to Joppa.

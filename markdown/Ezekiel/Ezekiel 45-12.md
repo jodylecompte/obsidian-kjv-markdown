@@ -1,0 +1,3 @@
+# Ezekiel 45:12
+
+And the shekel [shall be] twenty gerahs: twenty shekels, five and twenty shekels, fifteen shekels, shall be your maneh.

@@ -1,0 +1,3 @@
+# Psalm 48:8
+
+As we have heard, so have we seen in the city of the LORD of hosts, in the city of our God: God will establish it for ever. Selah.

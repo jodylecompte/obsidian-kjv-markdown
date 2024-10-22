@@ -1,0 +1,3 @@
+# Matthew 4:23
+
+And Jesus went about all Galilee, teaching in their synagogues, and preaching the gospel of the kingdom, and healing all manner of sickness and all manner of disease among the people.

@@ -1,0 +1,3 @@
+# Jeremiah 15:4
+
+And I will cause them to be removed into all kingdoms of the earth, because of Manasseh the son of Hezekiah king of Judah, for [that] which he did in Jerusalem.

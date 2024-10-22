@@ -1,0 +1,3 @@
+# Deuteronomy 19:10
+
+That innocent blood be not shed in thy land, which the LORD thy God giveth thee [for] an inheritance, and [so] blood be upon thee.

@@ -1,0 +1,3 @@
+# Psalm 74:9
+
+We see not our signs: [there is] no more any prophet: neither [is there] among us any that knoweth how long.

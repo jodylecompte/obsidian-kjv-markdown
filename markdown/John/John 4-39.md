@@ -1,0 +1,3 @@
+# John 4:39
+
+And many of the Samaritans of that city believed on him for the saying of the woman, which testified, He told me all that ever I did.

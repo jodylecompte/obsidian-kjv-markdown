@@ -1,0 +1,3 @@
+# Joshua 23:6
+
+Be ye therefore very courageous to keep and to do all that is written in the book of the law of Moses, that ye turn not aside therefrom [to] the right hand or [to] the left;

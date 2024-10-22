@@ -1,0 +1,3 @@
+# Isaiah 45:17
+
+[But] Israel shall be saved in the LORD with an everlasting salvation: ye shall not be ashamed nor confounded world without end.

@@ -1,0 +1,3 @@
+# Ezekiel 36:18
+
+Wherefore I poured my fury upon them for the blood that they had shed upon the land, and for their idols [wherewith] they had polluted it:

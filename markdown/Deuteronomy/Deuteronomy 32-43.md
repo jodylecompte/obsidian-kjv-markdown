@@ -1,0 +1,3 @@
+# Deuteronomy 32:43
+
+Rejoice, O ye nations, [with] his people: for he will avenge the blood of his servants, and will render vengeance to his adversaries, and will be merciful unto his land, [and] to his people.

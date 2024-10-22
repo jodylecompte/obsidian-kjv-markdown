@@ -1,0 +1,3 @@
+# 2 Chronicles 30:13
+
+And there assembled at Jerusalem much people to keep the feast of unleavened bread in the second month, a very great congregation.

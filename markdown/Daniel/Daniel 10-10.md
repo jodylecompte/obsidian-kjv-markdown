@@ -1,0 +1,3 @@
+# Daniel 10:10
+
+And, behold, an hand touched me, which set me upon my knees and [upon] the palms of my hands.

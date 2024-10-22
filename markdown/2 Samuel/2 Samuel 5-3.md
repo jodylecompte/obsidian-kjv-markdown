@@ -1,0 +1,3 @@
+# 2 Samuel 5:3
+
+So all the elders of Israel came to the king to Hebron; and king David made a league with them in Hebron before the LORD: and they anointed David king over Israel.

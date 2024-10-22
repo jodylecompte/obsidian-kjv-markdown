@@ -1,0 +1,3 @@
+# Philemon 1:6
+
+That the communication of thy faith may become effectual by the acknowledging of every good thing which is in you in Christ Jesus.

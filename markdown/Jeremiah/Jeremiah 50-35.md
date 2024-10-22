@@ -1,0 +1,3 @@
+# Jeremiah 50:35
+
+A sword [is] upon the Chaldeans, saith the LORD, and upon the inhabitants of Babylon, and upon her princes, and upon her wise [men].

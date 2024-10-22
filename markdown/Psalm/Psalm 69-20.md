@@ -1,0 +1,3 @@
+# Psalm 69:20
+
+Reproach hath broken my heart; and I am full of heaviness: and I looked [for some] to take pity, but [there was] none; and for comforters, but I found none.

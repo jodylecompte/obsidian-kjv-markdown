@@ -1,0 +1,3 @@
+# Ezekiel 34:31
+
+And ye my flock, the flock of my pasture, [are] men, [and] I [am] your God, saith the Lord GOD.

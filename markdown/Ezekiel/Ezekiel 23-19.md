@@ -1,0 +1,3 @@
+# Ezekiel 23:19
+
+Yet she multiplied her whoredoms, in calling to remembrance the days of her youth, wherein she had played the harlot in the land of Egypt.

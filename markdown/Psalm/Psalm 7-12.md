@@ -1,0 +1,3 @@
+# Psalm 7:12
+
+If he turn not, he will whet his sword; he hath bent his bow, and made it ready.

@@ -1,0 +1,3 @@
+# Acts 4:12
+
+Neither is there salvation in any other: for there is none other name under heaven given among men, whereby we must be saved.

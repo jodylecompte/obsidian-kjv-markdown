@@ -1,0 +1,3 @@
+# 1 Corinthians 15:12
+
+Now if Christ be preached that he rose from the dead, how say some among you that there is no resurrection of the dead?

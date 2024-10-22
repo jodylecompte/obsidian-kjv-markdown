@@ -1,0 +1,3 @@
+# Ezekiel 8:13
+
+He said also unto me, Turn thee yet again, [and] thou shalt see greater abominations that they do.

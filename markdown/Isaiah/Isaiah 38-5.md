@@ -1,0 +1,3 @@
+# Isaiah 38:5
+
+Go, and say to Hezekiah, Thus saith the LORD, the God of David thy father, I have heard thy prayer, I have seen thy tears: behold, I will add unto thy days fifteen years.

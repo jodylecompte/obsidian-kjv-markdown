@@ -1,0 +1,3 @@
+# Exodus 7:12
+
+For they cast down every man his rod, and they became serpents: but Aaron’s rod swallowed up their rods.

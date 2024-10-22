@@ -1,0 +1,3 @@
+# Luke 7:25
+
+But what went ye out for to see? A man clothed in soft raiment? Behold, they which are gorgeously apparelled, and live delicately, are in kings’ courts.

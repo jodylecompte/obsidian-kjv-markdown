@@ -1,0 +1,3 @@
+# 2 Samuel 8:12
+
+Of Syria, and of Moab, and of the children of Ammon, and of the Philistines, and of Amalek, and of the spoil of Hadadezer, son of Rehob, king of Zobah.

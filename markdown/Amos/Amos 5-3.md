@@ -1,0 +1,3 @@
+# Amos 5:3
+
+For thus saith the Lord GOD; The city that went out [by] a thousand shall leave an hundred, and that which went forth [by] an hundred shall leave ten, to the house of Israel.

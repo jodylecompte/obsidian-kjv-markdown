@@ -1,0 +1,3 @@
+# Exodus 29:39
+
+The one lamb thou shalt offer in the morning; and the other lamb thou shalt offer at even:

@@ -1,0 +1,3 @@
+# Psalm 132:3
+
+Surely I will not come into the tabernacle of my house, nor go up into my bed;

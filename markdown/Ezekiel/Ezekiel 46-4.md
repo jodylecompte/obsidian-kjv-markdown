@@ -1,0 +1,3 @@
+# Ezekiel 46:4
+
+And the burnt offering that the prince shall offer unto the LORD in the sabbath day [shall be] six lambs without blemish, and a ram without blemish.

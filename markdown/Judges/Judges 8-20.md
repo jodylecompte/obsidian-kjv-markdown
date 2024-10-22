@@ -1,0 +1,3 @@
+# Judges 8:20
+
+And he said unto Jether his firstborn, Up, [and] slay them. But the youth drew not his sword: for he feared, because he [was] yet a youth.

@@ -1,0 +1,3 @@
+# Jeremiah 16:18
+
+And first I will recompense their iniquity and their sin double; because they have defiled my land, they have filled mine inheritance with the carcases of their detestable and abominable things.

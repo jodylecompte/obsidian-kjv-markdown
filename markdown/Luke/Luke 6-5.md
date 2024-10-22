@@ -1,0 +1,3 @@
+# Luke 6:5
+
+And he said unto them, That the Son of man is Lord also of the sabbath.

@@ -1,0 +1,3 @@
+# Exodus 23:30
+
+By little and little I will drive them out from before thee, until thou be increased, and inherit the land.

@@ -1,0 +1,3 @@
+# Proverbs 3:25
+
+Be not afraid of sudden fear, neither of the desolation of the wicked, when it cometh.

@@ -1,0 +1,3 @@
+# Matthew 16:12
+
+Then understood they how that he bade [them] not beware of the leaven of bread, but of the doctrine of the Pharisees and of the Sadducees.

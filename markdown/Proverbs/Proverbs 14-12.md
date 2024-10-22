@@ -1,0 +1,3 @@
+# Proverbs 14:12
+
+There is a way which seemeth right unto a man, but the end thereof [are] the ways of death.

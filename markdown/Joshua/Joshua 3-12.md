@@ -1,0 +1,3 @@
+# Joshua 3:12
+
+Now therefore take you twelve men out of the tribes of Israel, out of every tribe a man.

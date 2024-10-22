@@ -1,0 +1,3 @@
+# Hosea 8:12
+
+I have written to him the great things of my law, [but] they were counted as a strange thing.

@@ -1,0 +1,3 @@
+# Acts 23:1
+
+And Paul, earnestly beholding the council, said, Men [and] brethren, I have lived in all good conscience before God until this day.

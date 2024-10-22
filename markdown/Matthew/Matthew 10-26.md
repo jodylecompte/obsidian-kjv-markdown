@@ -1,0 +1,3 @@
+# Matthew 10:26
+
+Fear them not therefore: for there is nothing covered, that shall not be revealed; and hid, that shall not be known.

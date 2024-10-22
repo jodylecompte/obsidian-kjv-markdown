@@ -1,0 +1,3 @@
+# Isaiah 59:17
+
+For he put on righteousness as a breastplate, and an helmet of salvation upon his head; and he put on the garments of vengeance [for] clothing, and was clad with zeal as a cloke.

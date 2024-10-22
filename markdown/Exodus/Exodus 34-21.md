@@ -1,0 +1,3 @@
+# Exodus 34:21
+
+Six days thou shalt work, but on the seventh day thou shalt rest: in earing time and in harvest thou shalt rest.

@@ -1,0 +1,3 @@
+# Isaiah 1:2
+
+Hear, O heavens, and give ear, O earth: for the LORD hath spoken, I have nourished and brought up children, and they have rebelled against me.

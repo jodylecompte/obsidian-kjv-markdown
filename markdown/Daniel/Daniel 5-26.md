@@ -1,0 +1,3 @@
+# Daniel 5:26
+
+This [is] the interpretation of the thing: MENE; God hath numbered thy kingdom, and finished it.

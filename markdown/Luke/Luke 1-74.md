@@ -1,0 +1,3 @@
+# Luke 1:74
+
+That he would grant unto us, that we being delivered out of the hand of our enemies might serve him without fear,

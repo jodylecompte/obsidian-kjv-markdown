@@ -1,0 +1,3 @@
+# 1 Chronicles 29:27
+
+And the time that he reigned over Israel [was] forty years; seven years reigned he in Hebron, and thirty and three [years] reigned he in Jerusalem.

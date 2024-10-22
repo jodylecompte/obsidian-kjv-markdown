@@ -1,0 +1,3 @@
+# Luke 18:3
+
+And there was a widow in that city; and she came unto him, saying, Avenge me of mine adversary.

@@ -1,0 +1,3 @@
+# Matthew 5:40
+
+And if any man will sue thee at the law, and take away thy coat, let him have [thy] cloke also.

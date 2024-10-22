@@ -1,0 +1,3 @@
+# 1 Thessalonians 5:5
+
+Ye are all the children of light, and the children of the day: we are not of the night, nor of darkness.

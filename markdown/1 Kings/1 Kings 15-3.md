@@ -1,0 +1,3 @@
+# 1 Kings 15:3
+
+And he walked in all the sins of his father, which he had done before him: and his heart was not perfect with the LORD his God, as the heart of David his father.

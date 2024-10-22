@@ -1,0 +1,3 @@
+# Ezekiel 35:14
+
+Thus saith the Lord GOD; When the whole earth rejoiceth, I will make thee desolate.

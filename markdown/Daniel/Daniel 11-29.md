@@ -1,0 +1,3 @@
+# Daniel 11:29
+
+At the time appointed he shall return, and come toward the south; but it shall not be as the former, or as the latter.

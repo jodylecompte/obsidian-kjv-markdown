@@ -1,0 +1,3 @@
+# Exodus 37:1
+
+And Bezaleel made the ark [of] shittim wood: two cubits and a half [was] the length of it, and a cubit and a half the breadth of it, and a cubit and a half the height of it:

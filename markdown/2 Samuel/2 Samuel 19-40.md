@@ -1,0 +1,3 @@
+# 2 Samuel 19:40
+
+Then the king went on to Gilgal, and Chimham went on with him: and all the people of Judah conducted the king, and also half the people of Israel.

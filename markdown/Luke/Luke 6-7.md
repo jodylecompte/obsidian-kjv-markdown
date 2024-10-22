@@ -1,0 +1,3 @@
+# Luke 6:7
+
+And the scribes and Pharisees watched him, whether he would heal on the sabbath day; that they might find an accusation against him.

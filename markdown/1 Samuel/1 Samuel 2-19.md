@@ -1,0 +1,3 @@
+# 1 Samuel 2:19
+
+Moreover his mother made him a little coat, and brought [it] to him from year to year, when she came up with her husband to offer the yearly sacrifice.

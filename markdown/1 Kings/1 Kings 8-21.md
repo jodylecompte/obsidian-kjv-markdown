@@ -1,0 +1,3 @@
+# 1 Kings 8:21
+
+And I have set there a place for the ark, wherein [is] the covenant of the LORD, which he made with our fathers, when he brought them out of the land of Egypt.

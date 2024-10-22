@@ -1,0 +1,3 @@
+# Ezekiel 18:30
+
+Therefore I will judge you, O house of Israel, every one according to his ways, saith the Lord GOD. Repent, and turn [yourselves] from all your transgressions; so iniquity shall not be your ruin.

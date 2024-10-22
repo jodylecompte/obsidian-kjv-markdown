@@ -1,0 +1,3 @@
+# 1 Chronicles 22:12
+
+Only the LORD give thee wisdom and understanding, and give thee charge concerning Israel, that thou mayest keep the law of the LORD thy God.

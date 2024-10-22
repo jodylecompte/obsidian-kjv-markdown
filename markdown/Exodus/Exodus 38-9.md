@@ -1,0 +1,3 @@
+# Exodus 38:9
+
+And he made the court: on the south side southward the hangings of the court [were of] fine twined linen, an hundred cubits:

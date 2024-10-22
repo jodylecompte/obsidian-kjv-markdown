@@ -1,0 +1,3 @@
+# Ezekiel 39:8
+
+Behold, it is come, and it is done, saith the Lord GOD; this [is] the day whereof I have spoken.

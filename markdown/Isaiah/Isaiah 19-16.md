@@ -1,0 +1,3 @@
+# Isaiah 19:16
+
+In that day shall Egypt be like unto women: and it shall be afraid and fear because of the shaking of the hand of the LORD of hosts, which he shaketh over it.

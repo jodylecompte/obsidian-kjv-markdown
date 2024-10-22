@@ -1,0 +1,3 @@
+# 2 Corinthians 4:13
+
+We having the same spirit of faith, according as it is written, I believed, and therefore have I spoken; we also believe, and therefore speak;

@@ -1,0 +1,3 @@
+# Joel 2:21
+
+Fear not, O land; be glad and rejoice: for the LORD will do great things.

@@ -1,0 +1,3 @@
+# Luke 9:26
+
+For whosoever shall be ashamed of me and of my words, of him shall the Son of man be ashamed, when he shall come in his own glory, and [in his] Father’s, and of the holy angels.

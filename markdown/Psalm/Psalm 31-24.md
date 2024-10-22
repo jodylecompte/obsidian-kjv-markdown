@@ -1,0 +1,3 @@
+# Psalm 31:24
+
+Be of good courage, and he shall strengthen your heart, all ye that hope in the LORD.

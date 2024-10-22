@@ -1,0 +1,3 @@
+# Isaiah 52:6
+
+Therefore my people shall know my name: therefore [they shall know] in that day that I [am] he that doth speak: behold, [it is] I.

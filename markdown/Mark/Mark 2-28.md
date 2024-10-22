@@ -1,0 +1,3 @@
+# Mark 2:28
+
+Therefore the Son of man is Lord also of the sabbath.

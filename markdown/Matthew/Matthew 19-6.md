@@ -1,0 +1,3 @@
+# Matthew 19:6
+
+Wherefore they are no more twain, but one flesh. What therefore God hath joined together, let not man put asunder.

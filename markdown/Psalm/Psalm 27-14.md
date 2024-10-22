@@ -1,0 +1,3 @@
+# Psalm 27:14
+
+Wait on the LORD: be of good courage, and he shall strengthen thine heart: wait, I say, on the LORD.

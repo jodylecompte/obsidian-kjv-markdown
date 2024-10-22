@@ -1,0 +1,3 @@
+# 2 Samuel 7:14
+
+I will be his father, and he shall be my son. If he commit iniquity, I will chasten him with the rod of men, and with the stripes of the children of men:

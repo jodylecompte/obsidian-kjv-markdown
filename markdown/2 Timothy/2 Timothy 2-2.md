@@ -1,0 +1,3 @@
+# 2 Timothy 2:2
+
+And the things that thou hast heard of me among many witnesses, the same commit thou to faithful men, who shall be able to teach others also.

@@ -1,0 +1,3 @@
+# Romans 16:25
+
+Now to him that is of power to stablish you according to my gospel, and the preaching of Jesus Christ, according to the revelation of the mystery, which was kept secret since the world began,

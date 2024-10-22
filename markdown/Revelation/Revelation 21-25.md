@@ -1,0 +1,3 @@
+# Revelation 21:25
+
+And the gates of it shall not be shut at all by day: for there shall be no night there.

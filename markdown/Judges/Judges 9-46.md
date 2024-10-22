@@ -1,0 +1,3 @@
+# Judges 9:46
+
+And when all the men of the tower of Shechem heard [that], they entered into an hold of the house of the god Berith.

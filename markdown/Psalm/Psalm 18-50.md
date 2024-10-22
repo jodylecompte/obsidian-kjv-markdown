@@ -1,0 +1,3 @@
+# Psalm 18:50
+
+Great deliverance giveth he to his king; and sheweth mercy to his anointed, to David, and to his seed for evermore.

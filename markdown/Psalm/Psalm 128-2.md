@@ -1,0 +1,3 @@
+# Psalm 128:2
+
+For thou shalt eat the labour of thine hands: happy [shalt] thou [be], and [it shall be] well with thee.

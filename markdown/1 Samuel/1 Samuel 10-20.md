@@ -1,0 +1,3 @@
+# 1 Samuel 10:20
+
+And when Samuel had caused all the tribes of Israel to come near, the tribe of Benjamin was taken.

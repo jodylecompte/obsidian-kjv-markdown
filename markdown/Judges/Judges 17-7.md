@@ -1,0 +1,3 @@
+# Judges 17:7
+
+And there was a young man out of Bethlehemjudah of the family of Judah, who [was] a Levite, and he sojourned there.

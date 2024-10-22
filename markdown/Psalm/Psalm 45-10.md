@@ -1,0 +1,3 @@
+# Psalm 45:10
+
+Hearken, O daughter, and consider, and incline thine ear; forget also thine own people, and thy father’s house;

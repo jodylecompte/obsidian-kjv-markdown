@@ -1,0 +1,3 @@
+# Exodus 12:40
+
+Now the sojourning of the children of Israel, who dwelt in Egypt, [was] four hundred and thirty years.

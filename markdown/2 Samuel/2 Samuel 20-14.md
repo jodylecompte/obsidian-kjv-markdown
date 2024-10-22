@@ -1,0 +1,3 @@
+# 2 Samuel 20:14
+
+And he went through all the tribes of Israel unto Abel, and to Bethmaachah, and all the Berites: and they were gathered together, and went also after him.

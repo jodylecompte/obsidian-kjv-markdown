@@ -1,0 +1,3 @@
+# Deuteronomy 27:7
+
+And thou shalt offer peace offerings, and shalt eat there, and rejoice before the LORD thy God.

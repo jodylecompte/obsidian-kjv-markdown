@@ -1,0 +1,3 @@
+# 2 Chronicles 34:13
+
+Also [they were] over the bearers of burdens, and [were] overseers of all that wrought the work in any manner of service: and of the Levites [there were] scribes, and officers, and porters.

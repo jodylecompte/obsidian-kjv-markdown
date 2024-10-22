@@ -1,0 +1,3 @@
+# Galatians 5:16
+
+[This] I say then, Walk in the Spirit, and ye shall not fulfil the lust of the flesh.

@@ -1,0 +1,3 @@
+# Jeremiah 46:14
+
+Declare ye in Egypt, and publish in Migdol, and publish in Noph and in Tahpanhes: say ye, Stand fast, and prepare thee; for the sword shall devour round about thee.

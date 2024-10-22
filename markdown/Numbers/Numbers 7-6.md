@@ -1,0 +1,3 @@
+# Numbers 7:6
+
+And Moses took the wagons and the oxen, and gave them unto the Levites.

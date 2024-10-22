@@ -1,0 +1,3 @@
+# Acts 4:33
+
+And with great power gave the apostles witness of the resurrection of the Lord Jesus: and great grace was upon them all.

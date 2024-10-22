@@ -1,0 +1,3 @@
+# 1 Samuel 10:10
+
+And when they came thither to the hill, behold, a company of prophets met him; and the Spirit of God came upon him, and he prophesied among them.

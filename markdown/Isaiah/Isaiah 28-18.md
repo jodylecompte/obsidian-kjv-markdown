@@ -1,0 +1,3 @@
+# Isaiah 28:18
+
+And your covenant with death shall be disannulled, and your agreement with hell shall not stand; when the overflowing scourge shall pass through, then ye shall be trodden down by it.

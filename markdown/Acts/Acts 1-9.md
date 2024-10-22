@@ -1,0 +1,3 @@
+# Acts 1:9
+
+And when he had spoken these things, while they beheld, he was taken up; and a cloud received him out of their sight.

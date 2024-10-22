@@ -1,0 +1,3 @@
+# Numbers 19:22
+
+And whatsoever the unclean [person] toucheth shall be unclean; and the soul that toucheth [it] shall be unclean until even.

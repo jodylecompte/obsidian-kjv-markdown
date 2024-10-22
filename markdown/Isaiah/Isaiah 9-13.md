@@ -1,0 +1,3 @@
+# Isaiah 9:13
+
+For the people turneth not unto him that smiteth them, neither do they seek the LORD of hosts.

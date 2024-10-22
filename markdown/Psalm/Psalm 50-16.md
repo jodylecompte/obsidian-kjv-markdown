@@ -1,0 +1,3 @@
+# Psalm 50:16
+
+But unto the wicked God saith, What hast thou to do to declare my statutes, or [that] thou shouldest take my covenant in thy mouth?

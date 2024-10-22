@@ -1,0 +1,3 @@
+# Matthew 7:3
+
+And why beholdest thou the mote that is in thy brother’s eye, but considerest not the beam that is in thine own eye?

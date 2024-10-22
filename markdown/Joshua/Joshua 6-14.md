@@ -1,0 +1,3 @@
+# Joshua 6:14
+
+And the second day they compassed the city once, and returned into the camp: so they did six days.

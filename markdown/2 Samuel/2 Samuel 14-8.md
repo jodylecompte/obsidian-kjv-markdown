@@ -1,0 +1,3 @@
+# 2 Samuel 14:8
+
+And the king said unto the woman, Go to thine house, and I will give charge concerning thee.

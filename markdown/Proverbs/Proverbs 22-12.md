@@ -1,0 +1,3 @@
+# Proverbs 22:12
+
+The eyes of the LORD preserve knowledge, and he overthroweth the words of the transgressor.

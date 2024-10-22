@@ -1,0 +1,3 @@
+# Proverbs 20:16
+
+Take his garment that is surety [for] a stranger: and take a pledge of him for a strange woman.

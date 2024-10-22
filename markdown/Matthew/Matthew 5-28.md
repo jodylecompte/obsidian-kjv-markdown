@@ -1,0 +1,3 @@
+# Matthew 5:28
+
+But I say unto you, That whosoever looketh on a woman to lust after her hath committed adultery with her already in his heart.

@@ -1,0 +1,3 @@
+# Luke 7:21
+
+And in that same hour he cured many of [their] infirmities and plagues, and of evil spirits; and unto many [that were] blind he gave sight.

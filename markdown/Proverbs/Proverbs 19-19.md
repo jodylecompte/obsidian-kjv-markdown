@@ -1,0 +1,3 @@
+# Proverbs 19:19
+
+A man of great wrath shall suffer punishment: for if thou deliver [him], yet thou must do it again.

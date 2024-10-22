@@ -1,0 +1,3 @@
+# Ezekiel 11:23
+
+And the glory of the LORD went up from the midst of the city, and stood upon the mountain which [is] on the east side of the city.

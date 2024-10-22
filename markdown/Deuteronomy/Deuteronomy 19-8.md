@@ -1,0 +1,3 @@
+# Deuteronomy 19:8
+
+And if the LORD thy God enlarge thy coast, as he hath sworn unto thy fathers, and give thee all the land which he promised to give unto thy fathers;

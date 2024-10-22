@@ -1,0 +1,3 @@
+# Psalm 68:3
+
+But let the righteous be glad; let them rejoice before God: yea, let them exceedingly rejoice.

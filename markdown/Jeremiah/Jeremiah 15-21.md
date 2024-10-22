@@ -1,0 +1,3 @@
+# Jeremiah 15:21
+
+And I will deliver thee out of the hand of the wicked, and I will redeem thee out of the hand of the terrible.

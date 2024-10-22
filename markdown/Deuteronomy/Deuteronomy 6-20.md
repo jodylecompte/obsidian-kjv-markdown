@@ -1,0 +1,3 @@
+# Deuteronomy 6:20
+
+[And] when thy son asketh thee in time to come, saying, What [mean] the testimonies, and the statutes, and the judgments, which the LORD our God hath commanded you?

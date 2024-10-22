@@ -1,0 +1,3 @@
+# Malachi 3:18
+
+Then shall ye return, and discern between the righteous and the wicked, between him that serveth God and him that serveth him not.

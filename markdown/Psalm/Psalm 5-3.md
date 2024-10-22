@@ -1,0 +1,3 @@
+# Psalm 5:3
+
+My voice shalt thou hear in the morning, O LORD; in the morning will I direct [my prayer] unto thee, and will look up.

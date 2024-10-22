@@ -1,0 +1,3 @@
+# 1 Kings 7:38
+
+Then made he ten lavers of brass: one laver contained forty baths: [and] every laver was four cubits: [and] upon every one of the ten bases one laver.

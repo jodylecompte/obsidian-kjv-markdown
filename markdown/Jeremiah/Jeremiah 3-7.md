@@ -1,0 +1,3 @@
+# Jeremiah 3:7
+
+And I said after she had done all these [things], Turn thou unto me. But she returned not. And her treacherous sister Judah saw [it].

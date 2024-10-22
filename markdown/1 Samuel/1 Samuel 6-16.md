@@ -1,0 +1,3 @@
+# 1 Samuel 6:16
+
+And when the five lords of the Philistines had seen [it], they returned to Ekron the same day.

@@ -1,0 +1,3 @@
+# Proverbs 14:26
+
+In the fear of the LORD [is] strong confidence: and his children shall have a place of refuge.

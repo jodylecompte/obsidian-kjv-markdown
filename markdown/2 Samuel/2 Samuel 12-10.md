@@ -1,0 +1,3 @@
+# 2 Samuel 12:10
+
+Now therefore the sword shall never depart from thine house; because thou hast despised me, and hast taken the wife of Uriah the Hittite to be thy wife.

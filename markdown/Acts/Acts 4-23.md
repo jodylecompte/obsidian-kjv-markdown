@@ -1,0 +1,3 @@
+# Acts 4:23
+
+And being let go, they went to their own company, and reported all that the chief priests and elders had said unto them.

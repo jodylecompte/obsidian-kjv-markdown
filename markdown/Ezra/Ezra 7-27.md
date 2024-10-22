@@ -1,0 +1,3 @@
+# Ezra 7:27
+
+Blessed [be] the LORD God of our fathers, which hath put [such a thing] as this in the king’s heart, to beautify the house of the LORD which [is] in Jerusalem:

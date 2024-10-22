@@ -1,0 +1,3 @@
+# Jeremiah 8:18
+
+[When] I would comfort myself against sorrow, my heart [is] faint in me.

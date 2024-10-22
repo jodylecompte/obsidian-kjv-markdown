@@ -1,0 +1,3 @@
+# Psalm 113:4
+
+The LORD [is] high above all nations, [and] his glory above the heavens.

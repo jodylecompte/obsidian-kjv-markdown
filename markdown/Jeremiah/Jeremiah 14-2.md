@@ -1,0 +1,3 @@
+# Jeremiah 14:2
+
+Judah mourneth, and the gates thereof languish; they are black unto the ground; and the cry of Jerusalem is gone up.

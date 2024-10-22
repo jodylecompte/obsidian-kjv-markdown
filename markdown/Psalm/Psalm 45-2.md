@@ -1,0 +1,3 @@
+# Psalm 45:2
+
+Thou art fairer than the children of men: grace is poured into thy lips: therefore God hath blessed thee for ever.

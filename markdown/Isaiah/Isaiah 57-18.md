@@ -1,0 +1,3 @@
+# Isaiah 57:18
+
+I have seen his ways, and will heal him: I will lead him also, and restore comforts unto him and to his mourners.

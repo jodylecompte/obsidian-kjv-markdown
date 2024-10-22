@@ -1,0 +1,3 @@
+# Amos 5:19
+
+As if a man did flee from a lion, and a bear met him; or went into the house, and leaned his hand on the wall, and a serpent bit him.

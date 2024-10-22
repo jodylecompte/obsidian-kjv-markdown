@@ -1,0 +1,3 @@
+# Acts 11:8
+
+But I said, Not so, Lord: for nothing common or unclean hath at any time entered into my mouth.

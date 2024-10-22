@@ -1,0 +1,3 @@
+# Psalm 89:8
+
+O LORD God of hosts, who [is] a strong LORD like unto thee? or to thy faithfulness round about thee?

@@ -1,0 +1,3 @@
+# 2 Corinthians 11:2
+
+For I am jealous over you with godly jealousy: for I have espoused you to one husband, that I may present [you as] a chaste virgin to Christ.

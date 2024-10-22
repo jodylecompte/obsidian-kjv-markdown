@@ -1,0 +1,3 @@
+# Romans 2:24
+
+For the name of God is blasphemed among the Gentiles through you, as it is written.

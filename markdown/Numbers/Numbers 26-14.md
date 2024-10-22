@@ -1,0 +1,3 @@
+# Numbers 26:14
+
+These [are] the families of the Simeonites, twenty and two thousand and two hundred.

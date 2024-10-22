@@ -1,0 +1,3 @@
+# Exodus 37:17
+
+And he made the candlestick [of] pure gold: [of] beaten work made he the candlestick; his shaft, and his branch, his bowls, his knops, and his flowers, were of the same:

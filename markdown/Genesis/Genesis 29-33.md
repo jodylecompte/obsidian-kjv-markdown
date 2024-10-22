@@ -1,0 +1,3 @@
+# Genesis 29:33
+
+And she conceived again, and bare a son; and said, Because the LORD hath heard that I [was] hated, he hath therefore given me this [son] also: and she called his name Simeon.

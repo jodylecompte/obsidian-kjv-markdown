@@ -1,0 +1,3 @@
+# Ezekiel 30:2
+
+Son of man, prophesy and say, Thus saith the Lord GOD; Howl ye, Woe worth the day!

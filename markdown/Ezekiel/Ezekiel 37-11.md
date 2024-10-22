@@ -1,0 +1,3 @@
+# Ezekiel 37:11
+
+Then he said unto me, Son of man, these bones are the whole house of Israel: behold, they say, Our bones are dried, and our hope is lost: we are cut off for our parts.

@@ -1,0 +1,3 @@
+# Isaiah 10:4
+
+Without me they shall bow down under the prisoners, and they shall fall under the slain. For all this his anger is not turned away, but his hand [is] stretched out still.

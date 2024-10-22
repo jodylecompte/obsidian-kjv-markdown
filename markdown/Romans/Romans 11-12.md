@@ -1,0 +1,3 @@
+# Romans 11:12
+
+Now if the fall of them [be] the riches of the world, and the diminishing of them the riches of the Gentiles; how much more their fulness?

@@ -1,0 +1,3 @@
+# Mark 7:32
+
+And they bring unto him one that was deaf, and had an impediment in his speech; and they beseech him to put his hand upon him.

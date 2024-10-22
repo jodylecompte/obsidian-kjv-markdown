@@ -1,0 +1,3 @@
+# Matthew 15:13
+
+But he answered and said, Every plant, which my heavenly Father hath not planted, shall be rooted up.

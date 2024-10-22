@@ -1,0 +1,3 @@
+# Isaiah 38:19
+
+The living, the living, he shall praise thee, as I [do] this day: the father to the children shall make known thy truth.

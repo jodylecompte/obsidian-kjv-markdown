@@ -1,0 +1,3 @@
+# Luke 9:1
+
+Then he called his twelve disciples together, and gave them power and authority over all devils, and to cure diseases.

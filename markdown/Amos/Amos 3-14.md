@@ -1,0 +1,3 @@
+# Amos 3:14
+
+That in the day that I shall visit the transgressions of Israel upon him I will also visit the altars of Bethel: and the horns of the altar shall be cut off, and fall to the ground.

@@ -1,0 +1,3 @@
+# Revelation 22:3
+
+And there shall be no more curse: but the throne of God and of the Lamb shall be in it; and his servants shall serve him:

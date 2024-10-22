@@ -1,0 +1,3 @@
+# Psalm 57:11
+
+Be thou exalted, O God, above the heavens: [let] thy glory [be] above all the earth.

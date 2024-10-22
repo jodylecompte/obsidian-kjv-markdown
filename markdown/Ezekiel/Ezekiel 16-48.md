@@ -1,0 +1,3 @@
+# Ezekiel 16:48
+
+[As] I live, saith the Lord GOD, Sodom thy sister hath not done, she nor her daughters, as thou hast done, thou and thy daughters.

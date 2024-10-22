@@ -1,0 +1,3 @@
+# Ezra 2:63
+
+And the Tirshatha said unto them, that they should not eat of the most holy things, till there stood up a priest with Urim and with Thummim.

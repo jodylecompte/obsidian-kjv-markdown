@@ -1,0 +1,3 @@
+# Isaiah 41:13
+
+For I the LORD thy God will hold thy right hand, saying unto thee, Fear not; I will help thee.

@@ -1,0 +1,3 @@
+# Exodus 31:4
+
+To devise cunning works, to work in gold, and in silver, and in brass,

@@ -1,0 +1,3 @@
+# Mark 9:20
+
+And they brought him unto him: and when he saw him, straightway the spirit tare him; and he fell on the ground, and wallowed foaming.

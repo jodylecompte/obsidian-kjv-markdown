@@ -1,0 +1,3 @@
+# Mark 2:10
+
+But that ye may know that the Son of man hath power on earth to forgive sins, (he saith to the sick of the palsy,)

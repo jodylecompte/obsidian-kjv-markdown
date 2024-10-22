@@ -1,0 +1,3 @@
+# Ezekiel 38:14
+
+Therefore, son of man, prophesy and say unto Gog, Thus saith the Lord GOD; In that day when my people of Israel dwelleth safely, shalt thou not know [it]?

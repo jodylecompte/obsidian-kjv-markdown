@@ -1,0 +1,3 @@
+# Ezekiel 34:11
+
+For thus saith the Lord GOD; Behold, I, [even] I, will both search my sheep, and seek them out.

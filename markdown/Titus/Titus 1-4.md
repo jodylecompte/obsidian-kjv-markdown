@@ -1,0 +1,3 @@
+# Titus 1:4
+
+To Titus, [mine] own son after the common faith: Grace, mercy, [and] peace, from God the Father and the Lord Jesus Christ our Saviour.

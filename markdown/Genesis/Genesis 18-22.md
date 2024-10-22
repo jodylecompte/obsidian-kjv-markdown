@@ -1,0 +1,3 @@
+# Genesis 18:22
+
+And the men turned their faces from thence, and went toward Sodom: but Abraham stood yet before the LORD.

@@ -1,0 +1,3 @@
+# Ezra 10:1
+
+Now when Ezra had prayed, and when he had confessed, weeping and casting himself down before the house of God, there assembled unto him out of Israel a very great congregation of men and women and children: for the people wept very sore.

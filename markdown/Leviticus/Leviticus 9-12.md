@@ -1,0 +1,3 @@
+# Leviticus 9:12
+
+And he slew the burnt offering; and Aaron’s sons presented unto him the blood, which he sprinkled round about upon the altar.

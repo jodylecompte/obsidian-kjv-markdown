@@ -1,0 +1,3 @@
+# Numbers 21:27
+
+Wherefore they that speak in proverbs say, Come into Heshbon, let the city of Sihon be built and prepared:

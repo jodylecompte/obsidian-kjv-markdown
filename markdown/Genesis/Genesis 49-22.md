@@ -1,0 +1,3 @@
+# Genesis 49:22
+
+Joseph [is] a fruitful bough, [even] a fruitful bough by a well; [whose] branches run over the wall:

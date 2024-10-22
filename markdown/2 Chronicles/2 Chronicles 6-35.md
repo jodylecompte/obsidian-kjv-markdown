@@ -1,0 +1,3 @@
+# 2 Chronicles 6:35
+
+Then hear thou from the heavens their prayer and their supplication, and maintain their cause.

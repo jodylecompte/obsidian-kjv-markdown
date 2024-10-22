@@ -1,0 +1,3 @@
+# Acts 2:5
+
+And there were dwelling at Jerusalem Jews, devout men, out of every nation under heaven.

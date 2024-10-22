@@ -1,0 +1,3 @@
+# Proverbs 28:26
+
+He that trusteth in his own heart is a fool: but whoso walketh wisely, he shall be delivered.

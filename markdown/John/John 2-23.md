@@ -1,0 +1,3 @@
+# John 2:23
+
+Now when he was in Jerusalem at the passover, in the feast [day], many believed in his name, when they saw the miracles which he did.

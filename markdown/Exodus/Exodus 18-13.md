@@ -1,0 +1,3 @@
+# Exodus 18:13
+
+And it came to pass on the morrow, that Moses sat to judge the people: and the people stood by Moses from the morning unto the evening.

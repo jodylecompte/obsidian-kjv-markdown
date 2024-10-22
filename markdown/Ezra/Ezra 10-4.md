@@ -1,0 +1,3 @@
+# Ezra 10:4
+
+Arise; for [this] matter [belongeth] unto thee: we also [will be] with thee: be of good courage, and do [it].

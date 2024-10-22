@@ -1,0 +1,3 @@
+# Exodus 40:17
+
+And it came to pass in the first month in the second year, on the first [day] of the month, [that] the tabernacle was reared up.

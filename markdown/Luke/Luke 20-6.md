@@ -1,0 +1,3 @@
+# Luke 20:6
+
+But and if we say, Of men; all the people will stone us: for they be persuaded that John was a prophet.

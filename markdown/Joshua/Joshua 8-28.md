@@ -1,0 +1,3 @@
+# Joshua 8:28
+
+And Joshua burnt Ai, and made it an heap for ever, [even] a desolation unto this day.

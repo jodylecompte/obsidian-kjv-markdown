@@ -1,0 +1,3 @@
+# Numbers 32:12
+
+Save Caleb the son of Jephunneh the Kenezite, and Joshua the son of Nun: for they have wholly followed the LORD.

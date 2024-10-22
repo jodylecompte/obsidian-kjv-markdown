@@ -1,0 +1,3 @@
+# Hosea 7:10
+
+And the pride of Israel testifieth to his face: and they do not return to the LORD their God, nor seek him for all this.

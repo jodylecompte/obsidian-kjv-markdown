@@ -1,0 +1,3 @@
+# 1 Corinthians 8:13
+
+Wherefore, if meat make my brother to offend, I will eat no flesh while the world standeth, lest I make my brother to offend.

@@ -1,0 +1,3 @@
+# Ecclesiastes 7:3
+
+Sorrow [is] better than laughter: for by the sadness of the countenance the heart is made better.

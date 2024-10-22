@@ -1,0 +1,3 @@
+# Romans 11:13
+
+For I speak to you Gentiles, inasmuch as I am the apostle of the Gentiles, I magnify mine office:

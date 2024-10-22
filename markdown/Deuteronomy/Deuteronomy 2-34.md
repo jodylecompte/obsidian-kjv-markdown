@@ -1,0 +1,3 @@
+# Deuteronomy 2:34
+
+And we took all his cities at that time, and utterly destroyed the men, and the women, and the little ones, of every city, we left none to remain:

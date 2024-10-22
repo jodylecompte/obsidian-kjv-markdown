@@ -1,0 +1,3 @@
+# 1 Kings 11:9
+
+And the LORD was angry with Solomon, because his heart was turned from the LORD God of Israel, which had appeared unto him twice,

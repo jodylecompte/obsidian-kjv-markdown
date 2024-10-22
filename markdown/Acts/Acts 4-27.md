@@ -1,0 +1,3 @@
+# Acts 4:27
+
+For of a truth against thy holy child Jesus, whom thou hast anointed, both Herod, and Pontius Pilate, with the Gentiles, and the people of Israel, were gathered together,

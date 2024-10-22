@@ -1,0 +1,3 @@
+# 2 Samuel 8:11
+
+Which also king David did dedicate unto the LORD, with the silver and gold that he had dedicated of all nations which he subdued;

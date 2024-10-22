@@ -1,0 +1,3 @@
+# Hosea 12:6
+
+Therefore turn thou to thy God: keep mercy and judgment, and wait on thy God continually.

@@ -1,0 +1,3 @@
+# Romans 14:8
+
+For whether we live, we live unto the Lord; and whether we die, we die unto the Lord: whether we live therefore, or die, we are the Lord’s.

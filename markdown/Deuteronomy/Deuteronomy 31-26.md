@@ -1,0 +1,3 @@
+# Deuteronomy 31:26
+
+Take this book of the law, and put it in the side of the ark of the covenant of the LORD your God, that it may be there for a witness against thee.

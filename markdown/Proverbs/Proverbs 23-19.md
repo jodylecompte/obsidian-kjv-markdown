@@ -1,0 +1,3 @@
+# Proverbs 23:19
+
+Hear thou, my son, and be wise, and guide thine heart in the way.

@@ -1,0 +1,3 @@
+# 2 Chronicles 1:6
+
+And Solomon went up thither to the brasen altar before the LORD, which [was] at the tabernacle of the congregation, and offered a thousand burnt offerings upon it.

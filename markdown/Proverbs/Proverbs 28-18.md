@@ -1,0 +1,3 @@
+# Proverbs 28:18
+
+Whoso walketh uprightly shall be saved: but [he that is] perverse [in his] ways shall fall at once.

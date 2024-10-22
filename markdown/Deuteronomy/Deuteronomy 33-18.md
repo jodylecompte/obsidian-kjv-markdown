@@ -1,0 +1,3 @@
+# Deuteronomy 33:18
+
+And of Zebulun he said, Rejoice, Zebulun, in thy going out; and, Issachar, in thy tents.

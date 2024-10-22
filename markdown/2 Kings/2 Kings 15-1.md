@@ -1,0 +1,3 @@
+# 2 Kings 15:1
+
+In the twenty and seventh year of Jeroboam king of Israel began Azariah son of Amaziah king of Judah to reign.

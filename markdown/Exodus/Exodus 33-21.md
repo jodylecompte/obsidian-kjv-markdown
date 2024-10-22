@@ -1,0 +1,3 @@
+# Exodus 33:21
+
+And the LORD said, Behold, [there is] a place by me, and thou shalt stand upon a rock:

@@ -1,0 +1,3 @@
+# Galatians 5:15
+
+But if ye bite and devour one another, take heed that ye be not consumed one of another.

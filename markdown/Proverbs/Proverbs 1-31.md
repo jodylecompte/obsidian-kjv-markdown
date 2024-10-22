@@ -1,0 +1,3 @@
+# Proverbs 1:31
+
+Therefore shall they eat of the fruit of their own way, and be filled with their own devices.

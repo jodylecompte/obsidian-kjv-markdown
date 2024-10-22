@@ -1,0 +1,3 @@
+# Ezekiel 43:1
+
+Afterward he brought me to the gate, [even] the gate that looketh toward the east:

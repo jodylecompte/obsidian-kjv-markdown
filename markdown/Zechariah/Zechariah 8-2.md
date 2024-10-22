@@ -1,0 +1,3 @@
+# Zechariah 8:2
+
+Thus saith the LORD of hosts; I was jealous for Zion with great jealousy, and I was jealous for her with great fury.

@@ -1,0 +1,3 @@
+# Romans 7:21
+
+I find then a law, that, when I would do good, evil is present with me.

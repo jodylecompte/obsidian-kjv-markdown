@@ -1,0 +1,3 @@
+# Ezekiel 14:17
+
+Or [if] I bring a sword upon that land, and say, Sword, go through the land; so that I cut off man and beast from it:

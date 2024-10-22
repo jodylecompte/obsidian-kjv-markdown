@@ -1,0 +1,3 @@
+# 1 Samuel 6:2
+
+And the Philistines called for the priests and the diviners, saying, What shall we do to the ark of the LORD? tell us wherewith we shall send it to his place.

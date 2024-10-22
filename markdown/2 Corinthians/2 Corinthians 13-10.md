@@ -1,0 +1,3 @@
+# 2 Corinthians 13:10
+
+Therefore I write these things being absent, lest being present I should use sharpness, according to the power which the Lord hath given me to edification, and not to destruction.

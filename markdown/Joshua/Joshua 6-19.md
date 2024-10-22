@@ -1,0 +1,3 @@
+# Joshua 6:19
+
+But all the silver, and gold, and vessels of brass and iron, [are] consecrated unto the LORD: they shall come into the treasury of the LORD.

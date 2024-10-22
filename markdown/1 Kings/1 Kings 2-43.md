@@ -1,0 +1,3 @@
+# 1 Kings 2:43
+
+Why then hast thou not kept the oath of the LORD, and the commandment that I have charged thee with?

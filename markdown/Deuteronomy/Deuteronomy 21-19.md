@@ -1,0 +1,3 @@
+# Deuteronomy 21:19
+
+Then shall his father and his mother lay hold on him, and bring him out unto the elders of his city, and unto the gate of his place;

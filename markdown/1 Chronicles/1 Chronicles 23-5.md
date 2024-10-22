@@ -1,0 +1,3 @@
+# 1 Chronicles 23:5
+
+Moreover four thousand [were] porters; and four thousand praised the LORD with the instruments which I made, [said David], to praise [therewith].

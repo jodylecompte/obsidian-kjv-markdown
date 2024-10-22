@@ -1,0 +1,3 @@
+# 2 Chronicles 31:17
+
+Both to the genealogy of the priests by the house of their fathers, and the Levites from twenty years old and upward, in their charges by their courses;

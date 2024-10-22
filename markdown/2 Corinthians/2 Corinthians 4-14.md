@@ -1,0 +1,3 @@
+# 2 Corinthians 4:14
+
+Knowing that he which raised up the Lord Jesus shall raise up us also by Jesus, and shall present [us] with you.

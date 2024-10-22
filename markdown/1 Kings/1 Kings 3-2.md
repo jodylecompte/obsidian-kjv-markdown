@@ -1,0 +1,3 @@
+# 1 Kings 3:2
+
+Only the people sacrificed in high places, because there was no house built unto the name of the LORD, until those days.

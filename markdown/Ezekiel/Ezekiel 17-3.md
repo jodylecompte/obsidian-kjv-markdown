@@ -1,0 +1,3 @@
+# Ezekiel 17:3
+
+And say, Thus saith the Lord GOD; A great eagle with great wings, longwinged, full of feathers, which had divers colours, came unto Lebanon, and took the highest branch of the cedar:

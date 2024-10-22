@@ -1,0 +1,3 @@
+# Mark 8:19
+
+When I brake the five loaves among five thousand, how many baskets full of fragments took ye up? They say unto him, Twelve.

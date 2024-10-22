@@ -1,0 +1,3 @@
+# 1 Chronicles 21:18
+
+Then the angel of the LORD commanded Gad to say to David, that David should go up, and set up an altar unto the LORD in the threshingfloor of Ornan the Jebusite.

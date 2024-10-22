@@ -1,0 +1,3 @@
+# Joshua 8:9
+
+Joshua therefore sent them forth: and they went to lie in ambush, and abode between Bethel and Ai, on the west side of Ai: but Joshua lodged that night among the people.

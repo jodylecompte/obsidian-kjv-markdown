@@ -1,0 +1,3 @@
+# Psalm 48:14
+
+For this God [is] our God for ever and ever: he will be our guide [even] unto death.

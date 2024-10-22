@@ -1,0 +1,3 @@
+# 1 Corinthians 15:24
+
+Then [cometh] the end, when he shall have delivered up the kingdom to God, even the Father; when he shall have put down all rule and all authority and power.

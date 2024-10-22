@@ -1,0 +1,3 @@
+# Genesis 49:19
+
+Gad, a troop shall overcome him: but he shall overcome at the last.

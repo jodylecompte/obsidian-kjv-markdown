@@ -1,0 +1,3 @@
+# Genesis 26:12
+
+Then Isaac sowed in that land, and received in the same year an hundredfold: and the LORD blessed him.

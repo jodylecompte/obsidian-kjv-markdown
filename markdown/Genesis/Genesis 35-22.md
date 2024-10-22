@@ -1,0 +1,3 @@
+# Genesis 35:22
+
+And it came to pass, when Israel dwelt in that land, that Reuben went and lay with Bilhah his father’s concubine: and Israel heard [it]. Now the sons of Jacob were twelve:

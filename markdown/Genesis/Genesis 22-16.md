@@ -1,0 +1,3 @@
+# Genesis 22:16
+
+And said, By myself have I sworn, saith the LORD, for because thou hast done this thing, and hast not withheld thy son, thine only [son]:

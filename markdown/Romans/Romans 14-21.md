@@ -1,0 +1,3 @@
+# Romans 14:21
+
+[It is] good neither to eat flesh, nor to drink wine, nor [any thing] whereby thy brother stumbleth, or is offended, or is made weak.

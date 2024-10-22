@@ -1,0 +1,3 @@
+# Genesis 36:31
+
+And these [are] the kings that reigned in the land of Edom, before there reigned any king over the children of Israel.

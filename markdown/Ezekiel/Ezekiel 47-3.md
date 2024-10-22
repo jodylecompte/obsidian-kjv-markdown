@@ -1,0 +1,3 @@
+# Ezekiel 47:3
+
+And when the man that had the line in his hand went forth eastward, he measured a thousand cubits, and he brought me through the waters; the waters [were] to the ancles.

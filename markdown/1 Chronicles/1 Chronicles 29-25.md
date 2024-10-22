@@ -1,0 +1,3 @@
+# 1 Chronicles 29:25
+
+And the LORD magnified Solomon exceedingly in the sight of all Israel, and bestowed upon him [such] royal majesty as had not been on any king before him in Israel.

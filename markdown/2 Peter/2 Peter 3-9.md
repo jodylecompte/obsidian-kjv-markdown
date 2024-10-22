@@ -1,0 +1,3 @@
+# 2 Peter 3:9
+
+The Lord is not slack concerning his promise, as some men count slackness; but is longsuffering to us-ward, not willing that any should perish, but that all should come to repentance.

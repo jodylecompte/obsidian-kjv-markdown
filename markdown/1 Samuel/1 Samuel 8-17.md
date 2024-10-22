@@ -1,0 +1,3 @@
+# 1 Samuel 8:17
+
+He will take the tenth of your sheep: and ye shall be his servants.

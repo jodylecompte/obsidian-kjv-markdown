@@ -1,0 +1,3 @@
+# Romans 1:24
+
+Wherefore God also gave them up to uncleanness through the lusts of their own hearts, to dishonour their own bodies between themselves:

@@ -1,0 +1,3 @@
+# Joshua 10:42
+
+And all these kings and their land did Joshua take at one time, because the LORD God of Israel fought for Israel.

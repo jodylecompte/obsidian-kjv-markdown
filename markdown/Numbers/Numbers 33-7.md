@@ -1,0 +1,3 @@
+# Numbers 33:7
+
+And they removed from Etham, and turned again unto Pihahiroth, which [is] before Baalzephon: and they pitched before Migdol.

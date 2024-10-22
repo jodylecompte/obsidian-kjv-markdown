@@ -1,0 +1,3 @@
+# Deuteronomy 14:25
+
+Then shalt thou turn [it] into money, and bind up the money in thine hand, and shalt go unto the place which the LORD thy God shall choose:

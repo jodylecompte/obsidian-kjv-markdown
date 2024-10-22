@@ -1,0 +1,3 @@
+# Jeremiah 27:10
+
+For they prophesy a lie unto you, to remove you far from your land; and that I should drive you out, and ye should perish.

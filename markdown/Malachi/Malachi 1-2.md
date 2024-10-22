@@ -1,0 +1,3 @@
+# Malachi 1:2
+
+I have loved you, saith the LORD. Yet ye say, Wherein hast thou loved us? [Was] not Esau Jacob’s brother? saith the LORD: yet I loved Jacob,

@@ -1,0 +1,3 @@
+# Luke 9:53
+
+And they did not receive him, because his face was as though he would go to Jerusalem.

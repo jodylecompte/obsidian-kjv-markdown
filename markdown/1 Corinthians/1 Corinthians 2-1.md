@@ -1,0 +1,3 @@
+# 1 Corinthians 2:1
+
+And I, brethren, when I came to you, came not with excellency of speech or of wisdom, declaring unto you the testimony of God.

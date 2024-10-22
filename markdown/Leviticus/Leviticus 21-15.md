@@ -1,0 +1,3 @@
+# Leviticus 21:15
+
+Neither shall he profane his seed among his people: for I the LORD do sanctify him.

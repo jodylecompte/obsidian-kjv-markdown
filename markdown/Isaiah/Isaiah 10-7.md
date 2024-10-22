@@ -1,0 +1,3 @@
+# Isaiah 10:7
+
+Howbeit he meaneth not so, neither doth his heart think so; but [it is] in his heart to destroy and cut off nations not a few.

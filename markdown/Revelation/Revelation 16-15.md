@@ -1,0 +1,3 @@
+# Revelation 16:15
+
+Behold, I come as a thief. Blessed [is] he that watcheth, and keepeth his garments, lest he walk naked, and they see his shame.

@@ -1,0 +1,3 @@
+# 2 Chronicles 5:7
+
+And the priests brought in the ark of the covenant of the LORD unto his place, to the oracle of the house, into the most holy [place, even] under the wings of the cherubims:

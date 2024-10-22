@@ -1,0 +1,3 @@
+# Jeremiah 3:11
+
+And the LORD said unto me, The backsliding Israel hath justified herself more than treacherous Judah.

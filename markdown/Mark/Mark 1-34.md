@@ -1,0 +1,3 @@
+# Mark 1:34
+
+And he healed many that were sick of divers diseases, and cast out many devils; and suffered not the devils to speak, because they knew him.

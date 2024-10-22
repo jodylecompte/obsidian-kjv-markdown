@@ -1,0 +1,3 @@
+# Joshua 19:17
+
+[And] the fourth lot came out to Issachar, for the children of Issachar according to their families.

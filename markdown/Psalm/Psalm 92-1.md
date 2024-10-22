@@ -1,0 +1,3 @@
+# Psalm 92:1
+
+A Psalm [or] Song for the sabbath day. [It is a] good [thing] to give thanks unto the LORD, and to sing praises unto thy name, O most High:

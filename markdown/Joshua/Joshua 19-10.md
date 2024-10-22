@@ -1,0 +1,3 @@
+# Joshua 19:10
+
+And the third lot came up for the children of Zebulun according to their families: and the border of their inheritance was unto Sarid:

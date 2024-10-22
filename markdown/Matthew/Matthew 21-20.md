@@ -1,0 +1,3 @@
+# Matthew 21:20
+
+And when the disciples saw [it], they marvelled, saying, How soon is the fig tree withered away!

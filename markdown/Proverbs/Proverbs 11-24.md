@@ -1,0 +1,3 @@
+# Proverbs 11:24
+
+There is that scattereth, and yet increaseth; and [there is] that withholdeth more than is meet, but [it tendeth] to poverty.

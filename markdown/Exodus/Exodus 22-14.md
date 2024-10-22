@@ -1,0 +1,3 @@
+# Exodus 22:14
+
+And if a man borrow [ought] of his neighbour, and it be hurt, or die, the owner thereof [being] not with it, he shall surely make [it] good.

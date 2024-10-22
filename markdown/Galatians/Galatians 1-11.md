@@ -1,0 +1,3 @@
+# Galatians 1:11
+
+But I certify you, brethren, that the gospel which was preached of me is not after man.

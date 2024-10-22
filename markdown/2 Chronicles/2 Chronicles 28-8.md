@@ -1,0 +1,3 @@
+# 2 Chronicles 28:8
+
+And the children of Israel carried away captive of their brethren two hundred thousand, women, sons, and daughters, and took also away much spoil from them, and brought the spoil to Samaria.

@@ -1,0 +1,3 @@
+# Exodus 30:30
+
+And thou shalt anoint Aaron and his sons, and consecrate them, that [they] may minister unto me in the priest’s office.

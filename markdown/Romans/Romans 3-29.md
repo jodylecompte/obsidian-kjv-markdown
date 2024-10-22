@@ -1,0 +1,3 @@
+# Romans 3:29
+
+[Is he] the God of the Jews only? [is he] not also of the Gentiles? Yes, of the Gentiles also:

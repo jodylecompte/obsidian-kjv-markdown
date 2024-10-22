@@ -1,0 +1,3 @@
+# Isaiah 40:29
+
+He giveth power to the faint; and to [them that have] no might he increaseth strength.

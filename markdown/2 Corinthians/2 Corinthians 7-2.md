@@ -1,0 +1,3 @@
+# 2 Corinthians 7:2
+
+Receive us; we have wronged no man, we have corrupted no man, we have defrauded no man.
